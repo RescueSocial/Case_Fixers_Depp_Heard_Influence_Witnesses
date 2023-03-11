@@ -8,10 +8,11 @@ More Updated Data from Social Media can be found on Kaggle, which has not been a
 
 Official Records were opened in October 2022 to 3rd parties with a Mandamus from the Court of Appeals Judges - an essential part of due process and legal rights
 
+- Amicus Briefs were filed with 97 organizations and experts supporting Amber Heard's Appeal Directly.
+
 https://amberopenletter.com/
 
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
-- Amicus Briefs were filed with 97 organizations and experts supporting Amber Heard's Appeal Directly.
 
 <b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
 Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
