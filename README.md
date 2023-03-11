@@ -26,11 +26,11 @@ https://amberopenletter.com/
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
 
 <b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
-Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
+"Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
 <br>As many, including A.O. Scott for The New York Times have noted, the vilification of Ms. Heard and ongoing online harassment of her and those who have voiced support for her have been unprecedented in both vitriol and scale. 
 <br>Much of this harassment was fueled by disinformation, misogyny, biphobia, and a monetized social media environment where a woman’s allegations of domestic violence and sexual assault were mocked for entertainment. The same disinformation and victim-blaming tropes are now being used against others who have alleged abuse.
 <br>In our opinion, the Depp v. Heard verdict and continued discourse around it indicate a fundamental misunderstanding of intimate partner and sexual violence and how survivors respond to it. The damaging consequences of the spread of this misinformation are incalculable. We have grave concerns about the rising misuse of defamation suits to threaten and silence survivors.
-<br>We condemn the public shaming of Amber Heard and join in support of her. We support the ability of all to report intimate partner and sexual violence free of harassment and intimidation.
+<br>We condemn the public shaming of Amber Heard and join in support of her. We support the ability of all to report intimate partner and sexual violence free of harassment and intimidation."
 
 <b>ORGANIZATIONS SUPPORTING AMBER HEARD - AND HER APPEAL:
 - Women's March Action
