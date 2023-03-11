@@ -6,6 +6,8 @@ Updates & New Data on Influence Operations Effects re Amber Heard. Organizations
 More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
 <br> https://www.kaggle.com/amberhearddata/datasets
 
+Official Records were opened in October 2022 to 3rd parties with a Mandamus from the Court of Appeals Judges - an essential part of due process and legal rights
+
 https://amberopenletter.com/
 
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
@@ -86,4 +88,4 @@ Five months ago, the verdict in the defamation trial between Johnny Depp and Amb
 - Instagram: <a href="https://www.kaggle.com/datasets/amberhearddata/instagram-amber-heard-data-aug-2021-to-sept-2022">Amber Heard Data from August 2021 to September 2022 (793,471 comments) 170,241 Posts Instagram on Amber Heard</a>
 - Twitter: <a href="https://www.kaggle.com/datasets/amberhearddata/amber-heard-twitter-data-april-2022-to-sept-2022">Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022</a>
 - Change.org: Amber Heard Data Collected 2022 - <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis</a>
-- YouTube: <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022>57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts</a>
+- YouTube: <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022">57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts</a>
