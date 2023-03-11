@@ -1,5 +1,5 @@
 # Amber_Heard_Influence_Operations
-Updates & New Data on Influence Operations Effects re Amber Heard. Organizations, Experts, Witnesses, Open-Source Documents, New Data of Multiple Platforms on Kaggle
+Updates & New Data on Amber Heard Influence Operations Effects -- Organizations, Experts, Witnesses, Open-Source Documents -- New Data of Multiple Platforms on Kaggle
 - (How Online Impacts Legal Cases & Society)
 - Continuation of Repository "Amber_Heard_Disinformation_Operations_Bots"
 
@@ -11,7 +11,9 @@ Official Records were opened in October 2022 to 3rd parties with a Mandamus from
 - <b>Amicus Briefs were filed with 97 organizations and experts supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., The issues of abuse from their vantage point as opinion, rejected jury instructions on types of abuse and Ms. Heard's purpose of Advocacy with an Opinion Editorial on Public Concern. 
 
-- Amber Heard did not get a fair case:
+It's essential for this to turn into something good - "focus on the future" - which can with review for a long-term benefit. Countless organizations and people were impacted. Most of these cases are unable to be studied, and this gives that opportunity. The truth is a lion to be released and we wish the best for Amber Heard.
+
+- Amber Heard did not get a fair case - spin doctoring:
 <br> There were insider threats and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. 
 <br>Amicus Briefs typically look at legal issues, not discovered evidence. Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, witnesses which were available, and on our society as a whole. The below Open Letter with over 300 organizations and experts was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
