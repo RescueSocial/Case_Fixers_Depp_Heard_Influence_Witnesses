@@ -3,6 +3,8 @@ Updates & New Data on Influence Operations Effects re Amber Heard. Organizations
 - (How Online Impacts Legal Cases & Society)
 - Continuation of Repository "Amber_Heard_Disinformation_Operations_Bots"
 
+More Updated Data from Social Media can be found on Kaggle: https://www.kaggle.com/amberhearddata/datasets
+
 https://amberopenletter.com/
 
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
