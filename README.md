@@ -3,7 +3,13 @@ Updates & New Data on Influence Operations Effects re Amber Heard. Organizations
 - (How Online Impacts Legal Cases & Society)
 - Continuation of Repository "Amber_Heard_Disinformation_Operations_Bots"
 
-More Updated Data from Social Media can be found on Kaggle: https://www.kaggle.com/amberhearddata/datasets
+More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
+<br> https://www.kaggle.com/amberhearddata/datasets
+- Reddit Amber Heard Data - June 2021 to Sept 2022 - 39,482 Posts Reddit (2021), 242,143 Posts Reddit (2022), 92,608 Accounts
+- Instagram Amber Heard Data from August 2021 to September 2022 (793,471 comments) 170,241 Posts Instagram on Amber Heard
+- Twitter Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022
+- Change.org Amber Heard Data Collected 2022 - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
+- 57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts
 
 https://amberopenletter.com/
 
