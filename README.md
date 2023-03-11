@@ -9,7 +9,7 @@ More Updated Data from Social Media can be found on Kaggle, which has not been a
 Official Records were opened in October 2022 to 3rd parties with a Mandamus from the Court of Appeals Judges - an essential part of due process and legal rights
 
 - Amicus Briefs were filed with 97 organizations and experts supporting Amber Heard's Appeal Directly.
-- <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., rejected jury instructions on types of abuse and Ms. Heard's purpose of advocacy with an Opinion Editorial on Public Concern. 2ndly, the issues of abuse as an opinion. 
+- <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., rejected jury instructions on types of abuse and Ms. Heard's purpose of Advocacy with an Opinion Editorial on Public Concern. 2ndly, the issues of abuse as an opinion from their vantage point.
 
 https://amberopenletter.com/
 
