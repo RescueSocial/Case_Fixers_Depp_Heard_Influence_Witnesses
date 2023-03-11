@@ -92,4 +92,4 @@ Five months ago, the verdict in the defamation trial between Johnny Depp and Amb
 - <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">Change.org</a>: Amber Heard Data Collected 2022 - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
 - <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022">YouTube</a>: 57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts
 
-Analysis is based on the <b>Balance of Probabilities</b>, not a percentage of yes or no.
+Analysis of Data Results is based on the <b>Balance of Probabilities</b>, not a percentage of yes or no.
