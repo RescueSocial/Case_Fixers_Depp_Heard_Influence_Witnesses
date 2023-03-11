@@ -19,7 +19,7 @@ This is sadly actually a very scary experience that feels (or is) extortionary. 
 <br>As seen, even people with doctoral degrees are studying this case and how it impacted society.
 
 When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through 2ndary parties.
-<br>Again, it's essential to understand how influential these cases are to society/to the victims themselves and to never stop talking to your witnesses/other victims - if possible.
+<br>Again, it's essential to understand how influential these cases are to society/to the victims themselves and to never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 
 <b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
