@@ -5,11 +5,6 @@ Updates & New Data on Influence Operations Effects re Amber Heard. Organizations
 
 More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
 <br> https://www.kaggle.com/amberhearddata/datasets
-- Reddit Amber Heard Data - June 2021 to Sept 2022 - 39,482 Posts Reddit (2021), 242,143 Posts Reddit (2022), 92,608 Accounts
-- Instagram Amber Heard Data from August 2021 to September 2022 (793,471 comments) 170,241 Posts Instagram on Amber Heard
-- Twitter Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022
-- Change.org Amber Heard Data Collected 2022 - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
-- 57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts
 
 https://amberopenletter.com/
 
@@ -85,3 +80,10 @@ Five months ago, the verdict in the defamation trial between Johnny Depp and Amb
 - Projekt ECHO 
 - Protect Our Defenders
 <br> • Scottish Women's Aid • Bi Women Quarterly • Associazione Iroko Onlus • C.A. Goldberg, PLLC, Victims' Rights Law Firm • Feminist Majority Foundation • Fearless! Hudson Valley, Inc. • McAllister Olivarius • Aidileys • Associazione Iroko Onlus • Bi Women Quarterly • CCChat Magazine • Center for Judicial Excellence • Center for Safety and Change •  Crumiller •  CybHer • The Feminist Litigation Firm •  Democratic Activists for Women Now •  Engendered Collective •  EnoughIsEnough Voter Project • Equal Justice Inc • Equal Rights Advocates • Equality Now • Eris Conflict Resolution •   Esperanza United (formerly Casa de Esperanza: National Latin@ Network) •  Every Voice Coalition • Family Court Crisis • Fearless! Hudson Valley, Inc. • Female Filmaker Fuse • Feminist Majority Foundation • Hope's Door • IMPACT • Konektis Belgium  • LIFT: Living in Freedom Together, Worcester • McAllister Olivarius • Military Rape Crisis Center • Mothers of Lost Children • Ms. Magazine • National LGBTQ Institute on Intimate Partner Violence • The National Organization for Women • The National Organization for Women Nassau Chapter  • The National Organization for Women: Virginia Chapter • National Women’s Law Center • Öfgar  • Ne Molchi "Don't Be Silent" (Kazakhstan) • Ne Molchi "Don't Be Silent" (Uzbekistan) • No More • NVRDC - Network for Victim Recovery of DC • ONA • One Mom's Battle - OMB • Osez le Féminisme  •  Law Office of Patricia M. Pastor: Trauma Informed Justice • Réseau International des Mères en Lutte • Sakhi for South Asian Women • Sanctuary for Families  • Sexual Violence Law Center • Sexual Violence Prevention Association • The Asian Feminist • The Milk Exchange  • The Safe Center LI • Step Up to Family Safety • UltraViolet • UnLocal  • Victim Focus • Violence Free Minnesota •  Warriors C.A.R.E. •  WeSpoke  •  The White Ribbon Campaign ( Cuyahoga County ) • Women Count USA: Femicide Accountability Project • Women For Change • ZIOS3 
+
+<b>UPDATED DATA AVAILABLE - OPEN-SOURCE:</b>
+- Reddit: <a href="https://www.kaggle.com/datasets/amberhearddata/reddit-amber-heard-data-june-2021-to-sept-2022">Amber Heard Data - June 2021 to Sept 2022 - 39,482 Posts Reddit (2021), 242,143 Posts Reddit (2022), 92,608 Accounts</a>
+- Instagram: <a href="https://www.kaggle.com/datasets/amberhearddata/instagram-amber-heard-data-aug-2021-to-sept-2022">Amber Heard Data from August 2021 to September 2022 (793,471 comments) 170,241 Posts Instagram on Amber Heard</a>
+- Twitter: <a href="https://www.kaggle.com/datasets/amberhearddata/amber-heard-twitter-data-april-2022-to-sept-2022">Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022</a>
+- Change.org: Amber Heard Data Collected 2022 - <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis</a>
+- YouTube: <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022>57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts</a>
