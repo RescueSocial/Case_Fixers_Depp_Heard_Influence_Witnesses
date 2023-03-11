@@ -1,10 +1,12 @@
 March 7, 2023
 
-Johnny Depp v. Amber Heard: Proffer Exhibits Unsealed
-Trial 👩‍⚖️
+Johnny Depp v. Amber Heard: Proffer Exhibits <b>(Shared Publicly)</b>
+
+- Essential for domestic abuse victims to see the extensive medical documentation from 2011-2022 that Amber Heard had for her case and unheard from witnesses.
+
 Good morning,
 
-The following documents have been unsealed:
+<b>The following documents have been "unsealed" [Shared Publicly with 3rd Parties]:</b>
 
 Stephen Deuters Deposition
 
@@ -80,14 +82,14 @@ Melanie Inglessis Deposition
 
 Sean Bett Deposition
 
-Amber Heard saw Dr. Bonnie Jacobs from 2011-2014. She stopped seeing her in 2014 and began seeing Dr. David Kipper's friend Dr. Connell Cowan from 2014-2016. Both she and Johnny Depp saw Dr. Amy Banks in 2015. They had a joint session with her and then Dr. Banks saw Depp alone once and Heard alone twice. They started seeing the couples therapist Dr. Laurel Anderson in late 2015 near the end of their relationship. This was after they saw Dr. Amy Banks. Heard returned to Dr. Bonnie Jacobs as of 2019.
+"Amber Heard saw Dr. Bonnie Jacobs from 2011-2014. She stopped seeing her in 2014 and began seeing Dr. David Kipper's friend Dr. Connell Cowan from 2014-2016. Both she and Johnny Depp saw Dr. Amy Banks in 2015. They had a joint session with her and then Dr. Banks saw Depp alone once and Heard alone twice. They started seeing the couples therapist Dr. Laurel Anderson in late 2015 near the end of their relationship. This was after they saw Dr. Amy Banks. Heard returned to Dr. Bonnie Jacobs as of 2019.
 
-Dr. David Kipper provided care for both Depp and Heard during the time that they were together. Debra Lloyd was Depp's nurse and Erin Falati was the nurse that Depp hired specifically for Amber.
+Dr. David Kipper provided care for both Depp and Heard during the time that they were together." Debra Lloyd and Erin Falati are nurses.
 
-Dr. Alan Blaustein was Depp's therapist.
+"Dr. Alan Blaustein was Depp's therapist.
 
 Please see the link below:
 
 https://drive.google.com/drive/folders/14di1fxX7kBnMg1kt3scQFex747vbUcU_?usp=share_link
 
-Thank you!
+Thank you!"
