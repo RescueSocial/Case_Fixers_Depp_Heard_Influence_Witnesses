@@ -5,7 +5,7 @@ Updates & New Data on Influence Operations Effects re Amber Heard. Organizations
 
 https://amberopenletter.com/
 
-<b><i>Released in November, before appeals were filed for Amber Heard on November 23, in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
+<b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
 
 <b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
 Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
