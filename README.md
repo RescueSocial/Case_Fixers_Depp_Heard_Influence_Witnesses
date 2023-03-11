@@ -9,7 +9,7 @@ More Updated Data from Social Media can be found on Kaggle, which has not been a
 <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records were opened in October 2022 to 3rd parties with a Mandamus</a> from the Court of Appeals Judges - an essential part of due process and legal rights
 
 - <b>Amicus Briefs were filed with 97 organizations and experts supporting Amber Heard's Appeal Directly.</b>
-- <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., The issues of abuse from their <b><u>vantage point</b></u> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
+- <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
 
 It's essential for this to turn into something good - "focus on the future" - which can with review for a long-term benefit. Countless organizations and people were impacted. Most of these cases are unable to be studied, and this gives that opportunity. <i>The truth is a lion to be released and we wish the best for Amber Heard.</i>
 
