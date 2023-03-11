@@ -11,6 +11,7 @@ Official Records were opened in October 2022 to 3rd parties with a Mandamus from
 https://amberopenletter.com/
 
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
+- Amicus Briefs were filed with 97 organizations and experts supporting Amber Heard's Appeal Directly.
 
 <b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
 Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
@@ -87,7 +88,7 @@ Five months ago, the verdict in the defamation trial between Johnny Depp and Amb
 - <a href="https://www.kaggle.com/datasets/amberhearddata/reddit-amber-heard-data-june-2021-to-sept-2022">Reddit</a>: Amber Heard Data - June 2021 to Sept 2022 - 39,482 Posts Reddit (2021), 242,143 Posts Reddit (2022), 92,608 Accounts
 - <a href="https://www.kaggle.com/datasets/amberhearddata/instagram-amber-heard-data-aug-2021-to-sept-2022">Instagram</a>: Amber Heard Data from August 2021 to September 2022 (793,471 comments) 170,241 Posts Instagram on Amber Heard
 - <a href="https://www.kaggle.com/datasets/amberhearddata/amber-heard-twitter-data-april-2022-to-sept-2022">Twitter</a>: Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022
-- <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">Change.org: Amber Heard Data Collected 2022</a> - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
+- <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">Change.org</a>: Amber Heard Data Collected 2022 - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
 - <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022">YouTube</a>: 57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts
 
 Analysis is based on the <b>Balance of Probabilities</b>, not a percentage of yes or no.
