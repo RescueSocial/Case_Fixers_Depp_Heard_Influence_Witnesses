@@ -4,6 +4,7 @@ Johnny Depp v. Amber Heard: Proffer Exhibits <b>(Shared Publicly)</b>
 
 - Essential to see unheard from witnesses and evidence supporting Amber Heard's case.
 - Essential for domestic abuse victims to see the extensive medical documentation from 2011-2022 that Amber Heard had for her case.
+- Mandamus Order from 3 Court of Appeals Judges released the Official Records to 3rd parties, needed for Amicus Briefs (friends of the court)
 
 Good morning,
 
