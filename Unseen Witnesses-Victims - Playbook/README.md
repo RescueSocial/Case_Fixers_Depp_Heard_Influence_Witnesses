@@ -1,9 +1,7 @@
-
-
 <b>Unseen Witnesses-Victims - Playbook - Folder:</b>
 
-<br>This folder alleges the playbook of how witnesses and victims are interfered with. 
-<br>Typically, the <s>idea - depending on how it's litigated or dismissable - </s> is to make witnesses and victims turn against each other... 
+This folder alleges the playbook of how witnesses and victims are interfered with. 
+<br>Typically, the <s>unconscionable idea - depending on how it's litigated or dismissable - </s> is to make witnesses and victims turn against each other... 
 <br>
 The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats. 
 <br>Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
@@ -20,17 +18,17 @@ This is sadly actually a very scary experience that feels (or is) extortionary. 
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
 <br>As seen, even people with doctoral degrees are studying this case and how it impacted society.
 
-<br>When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through 2ndary parties.
+When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through 2ndary parties.
 <br>Again, it's essential to understand how influential these cases are to society/to the victims themselves and to never stop talking to your witnesses/other victims - if possible.
 
 <b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
 <br>An Amendment Removed Amber Heard 
 
-<b>"Conspiracy of Witnesses/Victims Playbook" - Hollywood/Entertainment Continuing</b>
+<b>"Conspiracy of Witnesses/Victims Playbook" - Hollywood/Entertainment Continuing - EXAMPLES</b>
  - Filed Febuary 2023
 <br>https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit
-Ashley Morgan Smithline -
+<br>Ashley Morgan Smithline -
 <br>Testimony May 5, 2021 on Smithline being abused by a public figure -
 <br>Video: https://www.youtube.com/watch?v=r8_4IiIHAjg
 <br>Ashley Morgan Smithline joins Evan Rachel Wood & Esme Bianco Against Manson's Violence - MAY 12, 2021
