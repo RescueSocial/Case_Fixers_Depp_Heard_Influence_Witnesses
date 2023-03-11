@@ -2,7 +2,8 @@ March 7, 2023
 
 Johnny Depp v. Amber Heard: Proffer Exhibits <b>(Shared Publicly)</b>
 
-- Essential for domestic abuse victims to see the extensive medical documentation from 2011-2022 that Amber Heard had for her case and unheard from witnesses.
+- Essential to see unheard from witnesses and evidence supporting Amber Heard's case.
+- Essential for domestic abuse victims to see the extensive medical documentation from 2011-2022 that Amber Heard had for her case.
 
 Good morning,
 
