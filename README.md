@@ -14,7 +14,7 @@ Official Records were opened in October 2022 to 3rd parties with a Mandamus from
 It's essential for this to turn into something good - "focus on the future" - which can with review for a long-term benefit. Countless organizations and people were impacted. Most of these cases are unable to be studied, and this gives that opportunity. The truth is a lion to be released and we wish the best for Amber Heard.
 
 With resilience, you can see Amber Heard's character from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
-<br>We look forward to Amber Heard being Mera in Aquaman 2, and for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.
+<br>We look forward to Amber Heard being Mera in Aquaman 2 -- for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.
 
 - Amber Heard did not get a fair case - spin doctoring:
 <br> There were insider threats and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. 
