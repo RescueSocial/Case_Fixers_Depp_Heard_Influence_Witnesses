@@ -36,6 +36,6 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 <br>Evan Rachel Wood Defends Against False Conspiracy Claims with Timeline -
 <br>https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants/
 
-Vague in this commentary, but the files when interpreted in a 3rd party context speak for themselves - clearly Elon Musk and Amber Heard were extorted/blackmailed falsely from the onset. This is why financial information and Donations are to be PRIVATE and PROTECTED... 
+Vague in this commentary, but the files when interpreted in a 3rd party context speak for themselves - clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time).
 <br>This can be like a Machette Kills 2013 movie. 
-<br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars.
+<br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
