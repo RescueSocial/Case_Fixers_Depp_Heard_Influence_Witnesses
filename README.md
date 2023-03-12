@@ -1,6 +1,6 @@
 # Amber_Heard_Influence_Operations
 Amber Heard Influence Operations & Effects -- Organizations, Experts, Witnesses, Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- New Data Social Media Platforms on Kaggle  
-- How Online Impacts Legal Cases, Victims/Witnesses, & Society
+- How Online Impacts Legal Cases, Victims/Witnesses, 3rd Parties, & Society
 - Continuation of Repository "Amber_Heard_Disinformation_Operations_Bots"
 
 More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
