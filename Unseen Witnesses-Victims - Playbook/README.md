@@ -1,7 +1,7 @@
 <b>Unseen Witnesses-Victims - Playbook - Folder:</b>
 
-This folder alleges the playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i>
-<br>Typically, the <s>unconscionable idea - depending on how it's litigated or dismissable - </s> is to make witnesses and victims turn against each other... 
+This folder alleges the playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---
+<br>Typically, the <s>unconscionable idea, depending on how it's litigated or dismissable, </s> is to make witnesses and victims turn against each other... 
 <br>
 The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats. 
 <br>Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
