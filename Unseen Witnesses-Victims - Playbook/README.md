@@ -17,10 +17,10 @@ Secondly, it's intensified by the manipulation of recording laws (Western vs Eas
 
 This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues. This is further a warning to everyone to know how to refute these manipulations and interferences.
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
-- <i>As seen, even people with doctoral university degrees are studying this case and how it impacted society. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to search engines. Without 'real' journalism and no protections for the less-powerful victims, including no due process/3rd party oversight protections and lack of access to enforcement for the less-powerful, there's less awareness.</i>
 
-When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through secondaryly parties.
+When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through secondary parties.
 <br>Again, it's essential to understand how influential these cases are to society including to the victims' lives themselves and to never stop talking to your witnesses/other victims (and Your Friends) - if possible.
+- <i>As seen, even people with doctoral university degrees are studying this case and how it impacted society. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to search engines. Without 'real' journalism and no protections for the less-powerful victims, including no due process/3rd party oversight protections and lack of access to enforcement for the less-powerful, there's less awareness.</i>
 
 <b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
