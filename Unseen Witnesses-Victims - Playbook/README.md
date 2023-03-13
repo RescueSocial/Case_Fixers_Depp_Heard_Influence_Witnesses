@@ -10,7 +10,7 @@ a model or actress that's been minimized, a former character reference... If the
 <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
 Secondly, it's intensified by the manipulation of recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
-<b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
+<b><br>If you ever watched <i>The Proposal Movie (2009)</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
 <br>It's very comedic, but imagine this intensified to <b>reality and revolving abuse, violence,</b> rather than merely a fictional marriage.
 <i><br>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
@@ -26,7 +26,7 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
 <br>An Amendment Removed Amber Heard as a witness
 
-<b>"Conspiracy of Witnesses/Victims Playbook" - Hollywood/Entertainment Continuing - EXAMPLES</b>
+<b>"Conspiracy of Witnesses/Victims Playbook" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
  - Filed Febuary 2023
 <br>https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit
 <br>Ashley Morgan Smithline -
@@ -42,3 +42,7 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 This can be like a Machette Kills 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
 ###### <i>"....[Example] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday." Patterns exist...</i>
+
+The Future definitely needs more "Veronica Mars" investigator white hats in 'hollywood' and 3rd parties and/or reporters even getting men to be witnesses of women abused (both videos are from the 2000s):
+<br>Video - Top Ten Unforgettable Moments (2004-2007) - https://www.youtube.com/watch?v=dYk_rIidKm4
+<br>Video - BUZZ 11-28-12 Starring Sharon Lawrence and Cassidy Freeman (2007) - https://youtu.be/2Ie2OcADm30
