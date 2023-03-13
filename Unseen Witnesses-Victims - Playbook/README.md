@@ -10,7 +10,7 @@ a model or actress that's been minimized, a former character reference... If the
 <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
-<b><br>If you ever watched <i>The Proposal Movie (2009)</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
+<b><br>If you ever watched <i>The Proposal Movie (2009)</i> with Sandra Bullock and Ryan Renolds, it's lik the fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
 <br>It's very comedic, <i>but imagine this intensified to <b>reality and revolving abuse, violence,</b></i> rather than merely a fictional marriage.
 <i><br>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
@@ -18,7 +18,7 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues. This is further a warning to everyone to know how to refute these manipulations and interferences.
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
 
-When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through secondary parties.
+<b>When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes, blackmail, including through secondary parties.
 <br>Again, it's essential to understand how influential these cases are to society including to the victims' lives themselves and to never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 - <i>As seen, even people with doctoral university degrees are studying this case and how it impacted society. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to search engines. Without 'real' journalism and no protections for the less-powerful victims, including no due process/3rd party oversight protections and lack of access to enforcement for the less-powerful, there's less awareness.</i>
 
