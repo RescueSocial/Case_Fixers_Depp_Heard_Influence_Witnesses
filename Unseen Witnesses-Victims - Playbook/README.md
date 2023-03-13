@@ -6,7 +6,7 @@ This folder Alleges the Playbook of how witnesses and victims are interfered wit
 The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats. 
 <br>Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
 a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...
-<br>
+
 #### <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
