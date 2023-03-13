@@ -13,6 +13,7 @@ Secondly, it's intensified by the manipulation of recording laws (Western vs Eas
 <b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact script of the INS Officer intimidating the characters with conspiracy/fraud.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
 <br>It's very comedic, but imagine this intensified to reality and revolving abuse, violence, rather than merely a fictional marriage.
+<br>Video Trailer of Movie: https://user-images.githubusercontent.com/55333723/224617591-998897cd-70bb-4128-b0e1-79a5b967c611.mp4
 
 This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues. This is further a warning to everyone to know how to refute these manipulations and interferences.
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
@@ -39,3 +40,4 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 Vague in this commentary, but the files when interpreted in a 3rd party context speak for themselves - clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time).
 <br>This can be like a Machette Kills 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
+<br>".... was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday."
