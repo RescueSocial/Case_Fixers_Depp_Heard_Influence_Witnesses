@@ -10,10 +10,10 @@ a model or actress that's been minimized, a former character reference... If the
 <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
 Secondly, it's intensified by the manipulation of recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
-<b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact script of the INS Officer intimidating the characters with conspiracy/fraud.</b>
+<b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer intimidating the characters with conspiracy/fraud.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
 <br>It's very comedic, but imagine this intensified to reality and revolving abuse, violence, rather than merely a fictional marriage.
-<br>Video Trailer of Movie: https://user-images.githubusercontent.com/55333723/224617591-998897cd-70bb-4128-b0e1-79a5b967c611.mp4
+<i><br>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
 
 This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues. This is further a warning to everyone to know how to refute these manipulations and interferences.
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
@@ -39,6 +39,6 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 
 Vague in this commentary, but the files when interpreted in a 3rd party context speak for themselves - clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time).
 
-<br>This can be like a Machette Kills 2013 movie. 
+This can be like a Machette Kills 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
-<i><br>"....[someone] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday."</i>
+<i> ##### "....[someone] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday."</i>
