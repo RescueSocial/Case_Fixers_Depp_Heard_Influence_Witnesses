@@ -1,12 +1,13 @@
 # Amber_Heard_Influence_Operations
-Updates & New Data on Amber Heard Influence Operations Effects -- Organizations, Experts, Witnesses, Open-Source Documents -- New Data of Multiple Platforms on Kaggle
-- (How Online Impacts Legal Cases & Society)
-- Continuation of Repository "Amber_Heard_Disinformation_Operations_Bots"
+Updated Amber Heard Influence Operations & Effects -- Organizations, Experts, Witnesses, Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- New Data Social Media Platforms on Kaggle  
+- <i>Online Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
+- See Previous Repository "Amber_Heard_Disinformation_Operations_Bots"
+- Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Hollywood Fixers</i>
 
 More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
 <br> https://www.kaggle.com/amberhearddata/datasets
 
-<a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records were opened in October 2022 to 3rd parties with a Mandamus</a> from the Court of Appeals Judges - an essential part of due process and legal rights
+<b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records were opened in October 2022 to 3rd parties with a Mandamus</a> from the Court of Appeals Judges - an essential part of due process and Legal Rights.</b>
 
 - <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
