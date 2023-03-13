@@ -38,6 +38,7 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 
 <i>Vague in this commentary</i> -- but the files when interpreted in a 3rd party context speak for themselves
  - Clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time). There's witness interference, which is a complex subject, so understand what origins.
+ - Amber Heard's Appeal Filings to the Court of Appeals refer to the situations on the surface, but without any analysis beneath them on how exploitive they truely are. Moreover, as far as we see, no refreshing investigators revealed the issues, nor was it stopped. Do not buckle to not communicate with others freely, and maybe one can speak to all 'sides.'
 
 This can be like a Machette Kills 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
