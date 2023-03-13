@@ -10,7 +10,7 @@ a model or actress that's been minimized, a former character reference... If the
 <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
 Secondly, it's intensified by the manipulation of recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
-<b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer intimidating the characters with conspiracy/fraud.</b>
+<b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer intimidating the characters with conspiracy/fraud <i>(it's reversing witness interference to create fear of communications)</i>.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
 <br>It's very comedic, but imagine this intensified to reality and revolving abuse, violence, rather than merely a fictional marriage.
 <i><br>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
@@ -24,7 +24,7 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 
 <b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
-<br>An Amendment Removed Amber Heard 
+<br>An Amendment Removed Amber Heard as a witness
 
 <b>"Conspiracy of Witnesses/Victims Playbook" - Hollywood/Entertainment Continuing - EXAMPLES</b>
  - Filed Febuary 2023
