@@ -1,4 +1,4 @@
-<b>Unseen Witnesses-Victims - Playbook - Folder: Witnesses-Donations Interference Spun:</b>
+<b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
 This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---
 <br>Typically, the <s>unconscionable idea, depending on how it's litigated or dismissable, </s> is to make witnesses and victims turn against each other... 
@@ -12,15 +12,15 @@ a model or actress that's been minimized, a former character reference... If the
 Secondly, it's intensified by the manipulation of recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
 <b><br>If you ever watched <i>The Proposal Movie</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
-<br>It's very comedic, but imagine this intensified to reality and revolving abuse, violence, rather than merely a fictional marriage.
+<br>It's very comedic, but imagine this intensified to <b>reality and revolving abuse, violence,</b> rather than merely a fictional marriage.
 <i><br>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
 
 This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues. This is further a warning to everyone to know how to refute these manipulations and interferences.
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
-- <i>As seen, even people with doctoral university degrees are studying this case and how it impacted society. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to search engines. Without 'real' journalism and no protections for the less-powerful victims, including no due process/3rd party oversight protections, there's less awareness.</i>
+- <i>As seen, even people with doctoral university degrees are studying this case and how it impacted society. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to search engines. Without 'real' journalism and no protections for the less-powerful victims, including no due process/3rd party oversight protections and lack of access to enforcement for the less-powerful, there's less awareness.</i>
 
 When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through secondaryly parties.
-<br>Again, it's essential to understand how influential these cases are to society/to the victims lives themselves and to never stop talking to your witnesses/other victims (and Your Friends) - if possible.
+<br>Again, it's essential to understand how influential these cases are to society including to the victims' lives themselves and to never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 
 <b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
@@ -41,4 +41,4 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 
 This can be like a Machette Kills 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
-###### <i>"....[Example] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday."</i>
+###### <i>"....[Example] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday." Patterns exist...</i>
