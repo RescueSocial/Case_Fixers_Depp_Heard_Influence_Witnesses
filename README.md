@@ -1,5 +1,5 @@
 # Amber_Heard_Influence_Operations
-Amber Heard Influence Operations & Effects -- Organizations, Experts, Witnesses, Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- New Data Social Media Platforms on Kaggle  
+Updated Amber Heard Influence Operations & Effects -- Organizations, Experts, Witnesses, Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- New Data Social Media Platforms on Kaggle  
 - <i>Online Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
 - See Previous Repository "Amber_Heard_Disinformation_Operations_Bots"
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Hollywood Fixers</i>
