@@ -9,7 +9,7 @@ a model or actress that's been minimized, a former character reference... If the
 <br>
 <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
-Secondly, it's intensified by the manipulation of recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
+Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
 <b><br>If you ever watched <i>The Proposal Movie (2009)</i> with Sandra Bullock and Ryan Renolds, it's the exact fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
 <br>https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1
 <br>It's very comedic, <i>but imagine this intensified to <b>reality and revolving abuse, violence,</b></i> rather than merely a fictional marriage.
