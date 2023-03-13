@@ -38,13 +38,13 @@ When donations, paychecks/nonpaychecks, supporters, friends, are thrown around w
 <br>https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants/
 
 <i>Vague in this commentary</i> -- but the files when interpreted in a 3rd party context speak for themselves
- - Clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time). There's witness interference, which is a complex subect, so understand what origins.
+ - Clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time). There's witness interference, which is a complex subject, so understand what origins.
 
 This can be like a Machette Kills 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
 ###### <i>"....[Example] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday." Patterns exist...</i>
 
-The Future definitely needs more "Veronica Mars" investigator white hats in 'hollywood' and 3rd parties and/or reporters even getting men to be witnesses of women abused (both videos are from the 2000s):
+<i>The Future</i> definitely needs more "Veronica Mars" investigator white hats in 'hollywood' and 3rd parties and/or reporters even getting men to be witnesses of women abused (both videos are from the 2000s):
 <br>Video - Veronica Mars Top Ten Unforgettable Moments (2004-2007) - https://www.youtube.com/watch?v=dYk_rIidKm4
 <br>Video - BUZZ 11-28-12 Starring Sharon Lawrence and Cassidy Freeman (2007) - https://youtu.be/2Ie2OcADm30
 <br><i>Information for Educational Purposes</i>
