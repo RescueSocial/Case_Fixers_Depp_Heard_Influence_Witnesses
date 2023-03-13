@@ -46,5 +46,5 @@ This can be like a Machette Kills 2013 movie.
 
 <i>The Future</i> definitely needs more "Veronica Mars" investigator white hats in 'hollywood' and 3rd parties and/or reporters even getting men to be witnesses of women abused (both videos are from the 2000s):
 <br>Video - Veronica Mars Top Ten Unforgettable Moments (2004-2007) - https://www.youtube.com/watch?v=dYk_rIidKm4
-<br>Video - [The Price of LA - Reporter/3rd party] BUZZ 11-28-12 Starring Sharon Lawrence and Cassidy Freeman (2007) - https://youtu.be/2Ie2OcADm30
+<br>Video - <i>The Price of LA - 3rd party reporter</i> - BUZZ 11-28-12 Starring Sharon Lawrence and Cassidy Freeman (2007) - https://youtu.be/2Ie2OcADm30
 <br><i>Information for Educational Purposes</i>
