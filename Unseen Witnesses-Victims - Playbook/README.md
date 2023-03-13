@@ -7,7 +7,7 @@ The resources to do this are intensified when it involves public figures - who a
 <br>Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
 a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...
 <br>
-<b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
+#### <b><i>This is the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement. 
 - <b>If you ever watched <i>The Proposal Movie <a href="https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1">(2009)</a></i> with Sandra Bullock and Ryan Renolds, it's like the fictional script of the INS Officer Intimidating the characters with conspiracy and/or fraud <i> - aka in real cases, it's reversing witness interference to create fear of communications</i>.</b>
