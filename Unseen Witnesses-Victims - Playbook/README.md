@@ -17,7 +17,7 @@ Secondly, it's intensified by the manipulation of recording laws (Western vs Eas
 
 This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues. This is further a warning to everyone to know how to refute these manipulations and interferences.
 <br>Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
-<br>As seen, even people with doctoral degrees are studying this case and how it impacted society.
+- <i>As seen, even people with doctoral university degrees are studying this case and how it impacted society. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to search engines. Without 'real' journalism and no protections for the less-powerful victims, there's less awareness.</i>
 
 When donations, paychecks/nonpaychecks, supporters, friends, are thrown around with 'sides' (there really is no 'side'), it becomes difficult to ever respond to. It becomes, blackmail, including through 2ndary parties.
 <br>Again, it's essential to understand how influential these cases are to society/to the victims lives themselves and to never stop talking to your witnesses/other victims (and Your Friends) - if possible.
