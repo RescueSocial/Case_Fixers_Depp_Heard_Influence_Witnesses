@@ -24,7 +24,7 @@ It's essential for this to turn into something good - <i><b>"focus on the future
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
-<br><i>-- What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
+<i>What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
 
 
 ## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br>
