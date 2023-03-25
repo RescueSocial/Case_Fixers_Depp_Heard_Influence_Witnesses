@@ -14,7 +14,7 @@ More Updated Data from Social Media can be found on Kaggle - which has not been 
 
 #### <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i>
 
-It's essential for this to turn into something good - <i><b>"focus on the future" (?)</b></i> This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. Most cases like this are unable to be studied, and this gives that opportunity. <i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
+It's essential for this to turn into something good - <i><b>"focus on the future" (?)</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. Most cases like this are unable to be studied, and this gives that opportunity. <i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
 
 - <i>Amber Heard did not get a fair case - spin doctoring:</i>
 <br> There were insider threats and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. 
