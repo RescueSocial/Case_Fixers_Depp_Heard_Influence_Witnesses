@@ -24,7 +24,7 @@ It's essential for this to turn into something good - <i><b>"focus on the future
 With resilience, you can see Amber Heard's character from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 -- for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
-#### <b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
+## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br>
 
 https://amberopenletter.com/
 
