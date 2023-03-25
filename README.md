@@ -10,7 +10,7 @@ More Updated Data from Social Media can be found on Kaggle - which has not been 
 <b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records were Opened in October 2022 to 3rd Parties with a Mandamus</a> from the Court of Appeals Judges - an essential part of due process and Legal Rights.</b>
 
 - <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
-- <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
+- <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
 
 #### <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i>
 
@@ -21,7 +21,7 @@ It's essential for this to turn into something good - <i><b>"focus on the future
 <br>Amicus Briefs typically look at legal issues, not discovered evidence. Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, witnesses which were available, and on our society as a whole. The below Open Letter with over 300 organizations and experts was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
 With resilience, you can see Amber Heard's character from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
-<br>We look forward to Amber Heard being Mera in Aquaman 2 -- for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.
+- <b>We look forward to Amber Heard being Mera in Aquaman 2 -- for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.
 
 
 https://amberopenletter.com/
