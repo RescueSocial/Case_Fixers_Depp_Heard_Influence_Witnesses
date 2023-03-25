@@ -4,6 +4,8 @@ Amber Heard Influence Effects & Fixers -- Influence on Organizations, Experts, W
 - See Previous Repository <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a>
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Hollywood Fixers</i>
 
+#### “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine
+
 More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
 <br> https://www.kaggle.com/amberhearddata/datasets
 
@@ -13,8 +15,6 @@ More Updated Data from Social Media can be found on Kaggle, which has not been a
 - <b>1st Amendment and Anti-Abuse issues were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
 
 It's essential for this to turn into something good - "focus on the future" - which can with review for a long-term benefit. Countless organizations and people were impacted. Most cases like this are unable to be studied, and this gives that opportunity. <i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
-
-#### “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine
 
 - <i>Amber Heard did not get a fair case - spin doctoring:</i>
 <br> There were insider threats and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. 
