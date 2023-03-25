@@ -1,7 +1,7 @@
 # Amber_Heard_Influence_Effects_Fixers
 Amber Heard Influence Effects & Fixers -- Influence on Organizations, Experts, Witnesses, Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- New Data Social Media Platforms on Kaggle  
 - <i>Online Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
-- See Previous Repository "Amber_Heard_Disinformation_Operations_Bots"
+- See Previous Repository <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a>
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Hollywood Fixers</i>
 
 More Updated Data from Social Media can be found on Kaggle, which has not been analyzed or processed:
