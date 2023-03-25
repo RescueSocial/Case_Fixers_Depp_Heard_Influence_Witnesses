@@ -14,17 +14,19 @@ More Updated Data from Social Media can be found on Kaggle - which has not been 
 
 #### <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i>
 
-It's essential for this to turn into something good - <i><b>"focus on the future" (?)</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
+It's essential for this to turn into something good - <i><b>"focus on the future" (?)</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. 
+<br><i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
 <br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
 
 - <i>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</i>
 <br> There were insider threats and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. 
 <br>Amicus Briefs typically look at legal issues, not discovered evidence. Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, witnesses which were available, and on our society as a whole. The below Open Letter with over 300 organizations and experts was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
-<i>What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
-
 With resilience, you can see Amber Heard's <b>good character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 -- for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
+
+<i>What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
+
 
 ## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br>
 
