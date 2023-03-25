@@ -14,22 +14,22 @@ More Updated Data from Social Media can be found on Kaggle - which has not been 
 
 #### <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i>
 
-It's essential for this to turn into something good - <i><b>"focus on the future" (?)</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. Most cases like this are unable to be studied, and this gives that opportunity. 
+It's essential for this to turn into something good - <i><b>"focus on the future" (?)</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
 <br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
 
-- <i>Amber Heard Did Not get a Fair Case - Spin Doctoring 2019-Present:</i>
+- <i>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</i>
 <br> There were insider threats and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. 
 <br>Amicus Briefs typically look at legal issues, not discovered evidence. Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, witnesses which were available, and on our society as a whole. The below Open Letter with over 300 organizations and experts was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
 With resilience, you can see Amber Heard's character from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 -- for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
+#### <b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
 
 https://amberopenletter.com/
 
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to both insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
 
-<b>An Open Letter in Support of Amber Heard - Over 300 organizations and experts:</b><br>
 "Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
 <br>As many, including A.O. Scott for The New York Times have noted, the vilification of Ms. Heard and ongoing online harassment of her and those who have voiced support for her have been unprecedented in both vitriol and scale. 
 <br>Much of this harassment was fueled by disinformation, misogyny, biphobia, and a monetized social media environment where a woman’s allegations of domestic violence and sexual assault were mocked for entertainment. The same disinformation and victim-blaming tropes are now being used against others who have alleged abuse.
