@@ -1,11 +1,10 @@
 # Amber_Heard_Influence_Effects_Fixers
-Amber Heard Influence Effects & Fixers -- Influence on Organizations, Experts, Witnesses, Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- New Data on Social Media  
-- <i>Tremendous Impacts on Life</i>
-- <i>Online Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
-- See Previous Repository <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a>
+Influence Effects & Fixers on Amber Heard, 3rd Parties, Society, Organizations, Experts, Witnesses -- Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information -- <a href="https://www.kaggle.com/amberhearddata/datasets">New Data on Social Media 2021-2022</a>.
+- <i>Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Hollywood Fixers</i>
+- Previous Repository on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a>
 
-More Updated Data from Social Media can be found on Kaggle - which has not been analyzed or processed:
+More Updated Data from Social Media can be found on Kaggle (especially during and after) - which has not been analyzed or processed:
 <br> https://www.kaggle.com/amberhearddata/datasets
 
 <b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records were Opened in October 2022 to 3rd Parties with a Mandamus</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
