@@ -21,7 +21,8 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
 - <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i>
 <br>There were insider threats to this case, like hollywood fixers, and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
-<br><i>- The <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i> - See Files in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder
+<br><i>- The <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i>
+<br>- See Files in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder
 <br>Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
@@ -30,7 +31,8 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
-It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously rally to protect sources of editorials, then buckle? How can friends of decades or years become afraid, including of false incrimination?
+It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously join to protect Sources of editorials, then buckle?
+<br>How can friends of decades or years become afraid, including of false incrimination?
 <br>How can someone go from being a humanitarian to devastated, and then thankfully, life-rafted? 
 <br>What are Hollywood Fixers continuing to do over years, and what's the playbook?
 <br>Where do previous witnesses go?
