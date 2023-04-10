@@ -31,7 +31,7 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
 It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously rally to protect sources of editorials, then buckle? How can friends of decades or years become afraid, including of false incrimination?
-<br>How can someone go from being a humanitarian to devastated - thankfully, then life-rafted? 
+<br>How can someone go from being a humanitarian to devastated, and then thankfully, life-rafted? 
 <br>Where do previous witnesses go?
 <br>This GitHub seeks to point one into the direction of finding out.
 
