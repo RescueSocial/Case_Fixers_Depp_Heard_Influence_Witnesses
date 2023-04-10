@@ -10,6 +10,7 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 
 #### <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
+- Two Amicus Briefs are linked above and nationwide it was clear how important it was to reverse the effects.
 
 <i>When showing what fully happened - “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― St Augustine</i><br>
 - Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
@@ -22,7 +23,7 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
 - <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i>
 <br>There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
-<br><i>- (The <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.)</i>
+<br><i>- For example, the <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i>
 <br><i>- See Files related to this case as discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder</i>
 <br>Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
