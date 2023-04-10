@@ -16,7 +16,7 @@ More Updated Data from Social Media can be found on Kaggle (especially during an
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
 
 <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i><br>
-It's essential for this to turn into something good - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted.
+It's essential for this to turn into Something Good - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted.
 <br><i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
   <br>We hope victims of abuse can see what happened in a <b>perspective</b> as a reason to do community aid for people abused.</i> <b>The truth is a lion to be released</b> and we wish the best for Amber Heard, including that her friendships, career, and life flourishes as situations and understanding improves...
 
