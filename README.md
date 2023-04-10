@@ -30,7 +30,7 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 ## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 
 <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i><br>
-There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference with donation twisting which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
+There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference exploiting donations spin which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
 <br>Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
 <br><i>What's a Hollywood Fixer? -
 <br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - falsely blackmailing, pulling both ends, causing perpetual terror and chaos -
