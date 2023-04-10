@@ -31,8 +31,10 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 
 It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously rally to protect sources of editorials, then buckle? How can friends of decades or years become afraid, including of false incrimination?
 <br>How can someone go from being a humanitarian to devastated, and then thankfully, life-rafted? 
+<br>What are Hollywood Fixers continuing to do over years, and what's the playbook?
 <br>Where do previous witnesses go?
-<br>This GitHub seeks to point one into the direction of finding out.
+
+This GitHub seeks to point one into the direction of finding out.
 
 ![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
 
