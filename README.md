@@ -17,7 +17,8 @@ More Updated Data from Social Media can be found on Kaggle (especially during an
 
 <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i><br>
 It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
-  <br>We hope victims of abuse can see what happened in a <b>perspective</b> as a reason to do community aid for people abused.</i> <b>The truth is a lion to be released</b> and we wish the best for Amber Heard - including that her friendships, career, and life flourishes as situations and understanding improves...
+  <br>We hope victims of abuse can see what happened in a <b>perspective</b> as a reason to do Community Aid for people abused, despite Fixers and interference with publicity.</i>
+<br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
 - <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i>
