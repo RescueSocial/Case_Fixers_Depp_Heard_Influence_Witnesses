@@ -10,7 +10,7 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
-<br>Two Amicus Briefs are linked above and nationwide it was important to make a difference.
+<br>Two Amicus Briefs are linked above and nationwide it was important to make a difference to help.
 <br><i>- See Files related to this case as discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder</i>
 
 <i>When showing what fully happened - “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― St Augustine</i><br>
@@ -30,7 +30,7 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 ## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 
 <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i><br>
-There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference exploiting donations spin which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
+There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference spinning donations which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
 <br>Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
 <br><i>What's a Hollywood Fixer? -
 <br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - falsely blackmailing, pulling both ends, causing perpetual terror and chaos -
