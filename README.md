@@ -8,7 +8,7 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 - <i>Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Fixers</i>
 
-### <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
+## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
 <br>Two Amicus Briefs are linked above and nationwide it was important to make a difference.
 
