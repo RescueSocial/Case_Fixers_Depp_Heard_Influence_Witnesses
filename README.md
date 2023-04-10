@@ -21,7 +21,7 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - despite the Fixers, spin, pulling both ends, and even interference with publicity.</i>
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
-- <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
+#### <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i>
 <br>There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
 <br><i>- For example, the <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i>
