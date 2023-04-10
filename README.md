@@ -6,7 +6,7 @@
 
 - <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Fixers</i>
-- <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>.
+- <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>
 
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b>
