@@ -1,12 +1,12 @@
 # Amber_Heard_Influence_Effects_Fixers
 Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organizations, Experts, Witnesses
 <br> -- Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information
-<br> -- <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>.
 
 <b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Case were Opened in October 2022 to 3rd Parties with a Mandamus</a> Order from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
 
 - <i>Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Fixers</i>
+- <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>.
 
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
