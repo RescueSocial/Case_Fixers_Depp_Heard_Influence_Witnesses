@@ -20,9 +20,6 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br>We hope victims of abuse can see what happened in a <b>perspective</b> as a reason to do Community Aid for people abused - despite Fixers, spin doctoring, pulling both ends, and even interference with publicity.</i>
 <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
-![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
-
-
 - <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i>
 <br>There were insider threats to this case (aka hollywood fixers) and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
@@ -34,6 +31,8 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
 It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously rally to protect sources of editorials, then buckle? How can friends of decades or years become afraid, including of false incrimination? Where do previous witnesses go? This GitHub seeks to point one into the direction of finding out.
+
+![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
 
 <i>What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
 
