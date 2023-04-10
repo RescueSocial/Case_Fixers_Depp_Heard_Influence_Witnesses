@@ -17,7 +17,7 @@ More Updated Data from Social Media can be found on Kaggle (especially during an
 
 <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i><br>
 It's essential for this to turn into something good - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
-<br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
+<br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard - including that her friendships, career, life, and understanding flourishes. We hope victims of abuse can see in a perspective as a reason for positive changes.</i>
 
 - <i>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i> There were insider threats to this case (aka hollywood fixers) and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. <i>(The <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific).</i>
@@ -26,6 +26,8 @@ It's essential for this to turn into something good - <i><b>"focus on the future
 
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
+
+It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously rally to protect sources of editorials, then buckle? How can friends of decades or years become afraid, including of false incrimination? Where do previous witnesses go? This GitHub seeks to point one into the direction of finding out.
 
 <i>What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
 
