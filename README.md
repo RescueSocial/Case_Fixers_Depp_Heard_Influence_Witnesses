@@ -25,9 +25,11 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
 ## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
-![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
 
 <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i>
+
+![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
+
 <br>There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
 <br><i>- For example, the <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i>
 <br>Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
