@@ -27,7 +27,7 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
 
-#### <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
+## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 
 <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i><br>
 There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
