@@ -1,5 +1,5 @@
 # Amber_Heard_Influence_Effects_Fixers
-Influence Effects & Fixers on Amber Heard, 3rd Parties, Society, Organizations, Experts, Witnesses
+Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organizations, Experts, Witnesses
 <br> -- Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information
 <br> -- <a href="https://www.kaggle.com/amberhearddata/datasets">New Data on Social Media 2021-2022</a>.
 
