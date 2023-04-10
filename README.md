@@ -10,8 +10,8 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
-<br>Two Amicus Briefs are linked above and nationwide it was important to make a difference to help.
-<br><i>- See Files related to this case as discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder</i>
+<br>Two Amicus Briefs are linked above and nationwide it was important to make a difference.
+<br><i>- See Files related to this case as discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder on how there was forcibly framing.</i>
 
 <i>When showing what fully happened - “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― St Augustine</i><br>
 - Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
