@@ -32,7 +32,8 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
-It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted? Why do Press Associations previously join to protect Sources of editorials, then buckle?
+It's important to compare and contast. What happened between 2019 and 2023? How can someone go from a winning case to practically being extorted?
+<br>Why do Press Associations previously join to protect Sources of editorials, then buckle?
 <br>How can friends of decades or years become afraid, including of false incrimination?
 <br>How can someone go from being a humanitarian to devastated, and then thankfully, life-rafted? 
 <br>What are Hollywood Fixers continuing to do over years, and what's the playbook?
@@ -44,7 +45,8 @@ This GitHub seeks to point one into the direction of finding out.
 
 <i>What's a Hollywood Fixer? -
 <br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos -
-<br><a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
+
+  <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
 
 
 ## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br>
