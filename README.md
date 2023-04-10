@@ -14,7 +14,7 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 - Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
 More Updated Data from Social Media can be found on Kaggle, especially during and after, which has not been analyzed or processed:  https://www.kaggle.com/amberhearddata/datasets
 
-#### <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i>
+#### <i>In The Search, “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i>
 
 It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
   <br>We hope victims of abuse can see what happened in a <b>perspective</b> as a reason to do Community Aid for people abused - despite Fixers, spin doctoring, pulling both ends, and even interference with publicity.</i>
