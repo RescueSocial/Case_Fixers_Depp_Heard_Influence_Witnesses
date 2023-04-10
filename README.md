@@ -32,7 +32,7 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 ## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 
 <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i><br>
-There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference accompanying spinning donations which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond.
+There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference accompanying spinning donations which should have dismissed the case, and unjustly this was spun on <i>origins</i> with us unable to properly respond.
 <br><br>
 ![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
 Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
