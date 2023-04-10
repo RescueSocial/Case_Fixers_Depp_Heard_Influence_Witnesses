@@ -13,13 +13,15 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 <br>Two Amicus Briefs are linked above and nationwide it was important to make a difference.
 
 <i>When showing what fully happened - “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― St Augustine</i><br>
-- <i> See Files related to this case as discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder on how there was forcibly framing.</i>
-- Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
-Updated Data from Social Media can be found on Kaggle, especially during and after, which has not been analyzed:  https://www.kaggle.com/amberhearddata/datasets
 
 It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
   <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - despite fixers, spin, pulling both ends, and even interference with publicity.</i>
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
+
+- <i> See Files related to this case as discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder on how there was forcibly framing.</i>
+- Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
+Updated Data from Social Media can be found on Kaggle, especially during and after, which has not been analyzed:  https://www.kaggle.com/amberhearddata/datasets
+
 
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
