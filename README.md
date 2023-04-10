@@ -17,7 +17,8 @@ More Updated Data from Social Media can be found on Kaggle (especially during an
 
 <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i><br>
 It's essential for this to turn into something good - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
-<br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard - including that her friendships, career, life, and understanding flourishes. We hope victims of abuse can see what happened in a <b>perspective</b> as a reason for positive changes.</i>
+<br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard, including that her friendships, career, life, and understanding flourishes.
+  <br>We hope victims of abuse can see what happened in a <b>perspective</b> as a reason for positive changes.</i>
 
 - <i>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</i>
 <br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i> There were insider threats to this case (aka hollywood fixers) and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. <i>(The <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific).</i>
