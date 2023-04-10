@@ -7,13 +7,13 @@ Influence Effects & Hollywood Fixers on Amber Heard, 3rd Parties, Society, Organ
 
 - <i>Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Fixers</i>
-- Previous Repository on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a>
-
-More Updated Data from Social Media can be found on Kaggle (especially during and after) - which has not been analyzed or processed:
-<br> https://www.kaggle.com/amberhearddata/datasets
 
 #### <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
+
+- Previous Repository on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a><br>
+More Updated Data from Social Media can be found on Kaggle (especially during and after) - which has not been analyzed or processed:
+<br> https://www.kaggle.com/amberhearddata/datasets
 
 <i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i><br>
 It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
