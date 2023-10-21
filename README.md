@@ -5,7 +5,8 @@
 <b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
 
 - <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
-- Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Fixers</i>
+- Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spins</s></a>, Playbooks, Fixers</i>
+- Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
 - <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>
 
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
@@ -28,6 +29,10 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
+## Confront FALSE Blackmailing to Stop It (Guide Recommendation) and Stop Orders
+- When facing issues where a person is trying to manipulate to edit, harm, and pull FALSE 'agent-principle' relationships to force no injunctions and silencing, one needs to CONFRONT IT. No matter what gender a person is, they should have the right to do injunctions early to stop harms before it gets worse. Unfortuneately, this case in paticular has many issues of only certain groups 'allowed' to respond which actually WORSENS the problem if not ALL 'sides' can respond.
+- When a person is trying to coerce about where funds go, relationships, and so on, go forward and explain the full context early on. It only makes the problems fester and increase if refusing to respond to the problems, e.g., false and twisted blackmailing (e.g., by 'fixers' in this case procuring funds). Often blackmailers and fixers like to prey on people who are afraid to respond and who are intimidated by their information and likeness being manipulated.
+  <br>Sadly this occured in this large case, which likely would never have gone to trial. AND it continues with or without any litigation. It is perpetual and a problem that Southern California/California in paticular has. 
 
 ## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
 
