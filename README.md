@@ -1,36 +1,60 @@
 # Amber_Heard_Influence_Effects_Fixers
-Influence Effects & Fixers on Amber Heard, 3rd Parties, Society, Organizations, Experts, Witnesses
-<br> -- Open-Source Documents -- Amici Organizations Filings, Official Records, Unseen Information
-<br> -- <a href="https://www.kaggle.com/amberhearddata/datasets">New Data on Social Media 2021-2022</a>.
+<b>Influence Effects & Hollywood Fixers on Amber Heard and 3rd Parties, Society, Organizations, Experts, Witnesses
+<br> - Open-Source Documents - Amici Organizations Filings, Official Records, & Unseen Information</b>
 
-<b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Case were Opened in October 2022 to 3rd Parties with a Mandamus</a> Order from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
+<b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
 
-- <i>Impacts to Legal Cases, Victims/Witnesses, 3rd Parties, & Society
-- Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Hollywood Fixers</i>
-- Previous Repository on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots"</a>
+- <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
+- Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spin Doctors</s></a>, Playbooks, Fixers</i>
+- <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>
 
-More Updated Data from Social Media can be found on Kaggle (especially during and after) - which has not been analyzed or processed:
-<br> https://www.kaggle.com/amberhearddata/datasets
+## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
+- <b>1st Amendment and Anti-Abuse points were filed</b>
+<br>-- E.g., The issues of abuse from their <b><i>Vantage Point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
+<br>Two Amicus Briefs are linked above and nationwide it was important to make a difference.
 
-#### <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
-- <b>1st Amendment and Anti-Abuse points were filed</b> -- E.g., The issues of abuse from their <b><i>vantage point</b></i> as opinion, rejected jury instructions on <i>types</i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
+<i>When showing what fully happened - “The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― St Augustine</i><br>
 
-<i>“The truth is like a lion. You don't have to defend it. Let it loose. It will defend itself.” ― Saint Augustine</i><br>
-It's essential for this to turn into something good - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. Countless organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
-<br><i><b>The truth is a lion to be released</b> and we wish the best for Amber Heard.</i>
+It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
+  <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - Despite fixers, spin, pulling both ends, and even interference with publicity.</i>
+  <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
-- <i>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</i>
-<br> <i>Amicus Briefs typically look at legal issues, not discovered evidence....</i> There were insider threats to this case (aka hollywood fixers) and witness interference which should have dismissed the case, and unjustly this was spun on origins with us unable to properly respond. <i>(The <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific).</i>
-<br> Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
-- The below Open Letter with over 300 organizations and experts was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
+- <i> See Files related to this case as Discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder on how there was forcibly false framing to remove support.</i>
+- Note, social media distracted from what happened. Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
+Updated Data from Social Media can be found on Kaggle, especially during and after, which has not been analyzed:  https://www.kaggle.com/amberhearddata/datasets
 
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
 - <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
-<i>What's a Hollywood Fixer? - They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - blackmailing, pulling both ends, causing perpetual terror and chaos - <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
+- The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
+
+
+## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
+
+<i>Amicus Briefs typically look at legal issues, not discovered evidence....</i><br>
+There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference accompanying spinning donations which should have dismissed the case, and unjustly this was spun on <i>origins</i> with us unable to properly respond.
+<br><br>
+![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
+Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
+
+<i>What's a Hollywood Fixer? -
+<br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - falsely blackmailing, pulling both ends, causing perpetual terror and chaos -
+  <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
+<br><i>- For example, the <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i>
+
+It's important to compare and contast. What happened between 2019 and 2023?
+<br>How can someone go from a winning case, and having decades of evidence and witnesses available, to practically being extorted?
+<br>Why do Press Associations previously join to protect Sources of editorials, then buckle?
+<br>How can friends of decades or years become afraid, including of false incrimination?
+<br>How can someone go from being a humanitarian to devastated, and then thankfully, life-rafted? 
+<br>What are Hollywood Fixers continuing to do over years, and what's the playbook?
+<br>Where do previous witnesses go?
+
+This GitHub seeks to point one into the direction of finding out.
 
 
 ## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br>
+![-amber open letter](https://user-images.githubusercontent.com/55333723/230967218-6f7a8853-b8d8-4ed5-9f26-7bab121a777d.png)
 
 https://amberopenletter.com/
 
