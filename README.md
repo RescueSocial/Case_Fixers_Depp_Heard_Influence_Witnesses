@@ -19,12 +19,12 @@
 It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the future"</b></i> ... This can be, in at least some ways with review for a long-term benefit. <i>Countless</i> organizations and people were impacted. <i>Most cases like this are unable to be studied, and this gives that opportunity. </i>
   <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - Despite fixers, spin, pulling both ends, and even interference with publicity.</i>
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
-
+<br>
+[![Movie Symbol](https://img.vimeo.com/vi/862288304/0.jpg)](https://vimeo.com/862288304))
 <b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
 <br>
 [![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
 <br>
-[![Movie Symbol](https://img.vimeo.com/vi/862288304/0.jpg)](https://vimeo.com/862288304))
 
 ## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
