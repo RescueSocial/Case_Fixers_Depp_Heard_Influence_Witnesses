@@ -8,12 +8,13 @@
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spins</s></a>, Playbooks, Fixers</i>
 - Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
 
-<b>Recommended Film - New York City Witnesses:</b>
+<b><i>Recommended Film - New York City Witnesses:</i></b>
 <br><b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
 <br>
 [![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
 <br>
-Watch the Full Movie of Rear Window on Archive: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
+Watch the Full Movie of Rear Window on Archive Org:
+<br> https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b>
