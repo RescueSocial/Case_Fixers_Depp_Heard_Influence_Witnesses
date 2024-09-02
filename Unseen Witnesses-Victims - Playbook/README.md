@@ -12,6 +12,15 @@ Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
 <br>
+
+<b><i>Recommended Film - New York City Witnesses:</i></b>
+<br><b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
+<br>
+[![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
+<br>
+Watch the Full Movie of Rear Window on Archive Org:
+<br> https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
+<br>
 <b>A POEM:<b><br>
 How these cases are to the victims lives and never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 <b>When funds, supporters, friends, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
