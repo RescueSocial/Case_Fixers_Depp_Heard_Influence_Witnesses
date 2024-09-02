@@ -10,10 +10,10 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
 
-<b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
+<b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"
 <br>
 <br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
-Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
+Jack Lemmon Plays an American diplomat.</b> *Study Friendships and Witnesses*
 <br>KIM NOVAK SCENE BELOW<br>
 [![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA))
 <br>
