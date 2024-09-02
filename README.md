@@ -20,27 +20,42 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - Despite fixers, spin, pulling both ends, and even interference with publicity.</i>
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
-- <i> See Files related to this case as Discovery in <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">"Unseen Witnesses-Victims - Playbook"</a> Folder on how there was forcibly false framing to remove support.</i>
-- Note, social media distracted from what happened. Previous Repository was on mainly online social media impacts <a href="https://github.com/RescueSocialTech/Amber-Heard_Disinformation_Operations_Bots">"Amber_Heard_Disinformation_Operations_Bots."</a><br>
-Updated Data from Social Media can be found on Kaggle, especially during and after, which has not been analyzed:  https://www.kaggle.com/amberhearddata/datasets
+<b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
+
+The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
+
+<b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
+<br>
+<br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
+Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
+<br>KIM NOVAK SCENE BELOW<br>
+[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA))
+<br>
+<br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
+ <br>
 
 With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
-- <b>We look forward to Amber Heard being Mera in Aquaman 2 - for domestic abuse victims everywhere and for organizations long-term, it would be positive to see her resilience.</b>
 
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
-## Confront FALSE Blackmailing to Stop It (Guide Recommendation) and Stop Orders
+# Confront FALSE Blackmailing to Stop It (Guide Recommendation) and Stop Orders
 - When facing issues where a person is trying to manipulate to edit, harm, and pull FALSE 'agent-principle' relationships to force no injunctions and silencing, one needs to CONFRONT IT. No matter what gender a person is, they should have the right to do injunctions early to stop harms before it gets worse. Unfortuneately, this case in paticular has many issues of only certain groups 'allowed' to respond which actually WORSENS the problem if not ALL 'sides' can respond.
 - When a person is trying to coerce about where funds go, relationships, and so on, go forward and explain the full context early on. It only makes the problems fester and increase if refusing to respond to the problems, e.g., false and twisted blackmailing (e.g., by 'fixers' in this case procuring funds). Often blackmailers and fixers like to prey on people who are afraid to respond and who are intimidated by their information and likeness being manipulated.
   <br>Sadly this occured in this large case, which likely would never have gone to trial. AND it continues with or without any litigation. It is perpetual and a problem that Southern California/California in paticular has. 
 
-## <i><b>Amber Heard Did Not Get a Fair Case - Spin Doctoring 2019-Present:</b></i>
+## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
-<i>Amicus Briefs typically look at legal issues, not discovered evidence....</i><br>
-There were insider threats to this case, like hollywood fixers determined to destroy, and witness interference accompanying spinning donations which should have dismissed the case, and unjustly this was spun on <i>origins</i> with us unable to properly respond.
-<br><br>
-![- 2 Pt Amber Heard Disinformation-Influence Operation - SNA Cover](https://user-images.githubusercontent.com/55333723/230850784-5fa1c745-a31b-48de-a8c4-eb287e850cce.png)
-Those issues are ongoing, and as 3rd parties, we should consider the effect of spin doctoring and the massive amounts of evidence, Witnesses which were Available, and on our society as a whole.
+The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
+
+<b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
+<br>
+<br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
+Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
+<br>KIM NOVAK SCENE BELOW<br>
+[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA))
+<br>
+<br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
+ <br>
 
 <i>What's a Hollywood Fixer? -
 <br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - falsely blackmailing, pulling both ends, causing perpetual terror and chaos -
