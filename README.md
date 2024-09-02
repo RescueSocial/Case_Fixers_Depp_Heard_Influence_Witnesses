@@ -74,6 +74,7 @@ This GitHub seeks to point one into the direction of finding out.
 
 
 ## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br>
+<br> <br> ### IMAGE FROM NEWSGROUP NEWSPAPERS LAWSUIT OF WITNESS TESTIMONY<br>
 ![-amber open letter](https://user-images.githubusercontent.com/55333723/230967218-6f7a8853-b8d8-4ed5-9f26-7bab121a777d.png)
 
 https://amberopenletter.com/
