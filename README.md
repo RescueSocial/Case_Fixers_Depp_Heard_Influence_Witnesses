@@ -7,7 +7,7 @@
 - <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spins</s></a>, Playbooks, Fixers</i>
 - Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
-<br>
+
 Recommended Film - New York City Witnesses:
 <br><b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
 <br>
