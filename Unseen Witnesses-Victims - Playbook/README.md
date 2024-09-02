@@ -4,13 +4,13 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/beYn6CB3eDA?si=xDJWp2jhWkWyGC56" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/https://www.youtube.com/watch?v=beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA))
 <br>
 The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
 Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
-
+<br>
 <b>A POEM:<b>
 <b>When funds, supporters, friends, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
 <br>How influential these cases are to the victims lives and never stop talking to your witnesses/other victims (and Your Friends) - if possible. <i>As seen, even people with university degrees review. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or dismissable,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats. Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
