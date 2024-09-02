@@ -9,6 +9,11 @@
 - Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
 - <a href="https://www.kaggle.com/amberhearddata/datasets">Updated Data on 5 Social Media Platforms 2021-2022</a>
 
+<b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
+<br>
+[![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
+<br>
+
 ## <b>Amicus Briefs were Filed with 97 Organizations and Experts Supporting Amber Heard's Appeal Directly.</b>
 - <b>1st Amendment and Anti-Abuse points were filed</b>
 <br>-- E.g., The issues of abuse from their <b><i>Vantage Point</b></i> as opinion, rejected jury instructions on <i><b>types</b></i> of abuse and <b><i>Amber Heard's purpose of Advocacy with an Opinion Editorial on Public Concern.</i></b> 
@@ -26,11 +31,6 @@ Educational Movie: [![Movie Symbol](https://img.vimeo.com/vi/862288304/0.jpg)](h
 ## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
 The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
-
-<b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
-<br>
-[![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
-<br>
 
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
