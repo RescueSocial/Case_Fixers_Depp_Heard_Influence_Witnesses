@@ -20,7 +20,7 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - Despite fixers, spin, pulling both ends, and even interference with publicity.</i>
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
-<b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
+## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
 The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 
@@ -29,7 +29,7 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
 Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
 <br>KIM NOVAK SCENE BELOW<br>
-[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady](https://img.youtube.com/vi/beYn6CB3eDA/0.jpg)](https://www.youtube.com/watch?v=beYn6CB3eDA))
+[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady]](https://www.youtube.com/watch?v=beYn6CB3eDA))
 <br>
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
