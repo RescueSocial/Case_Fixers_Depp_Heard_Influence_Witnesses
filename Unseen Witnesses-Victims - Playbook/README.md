@@ -28,18 +28,11 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
 <br>Removed as a witness that would testify
 
-<b>"Fixing" Witnesses/Victims Playbook" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
- - Filed Febuary 2023
-<br>https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit
-<br>Ashley Morgan Smithline -
-<br>Testimony May 5, 2021 on Smithline being abused by a public figure -
-<br>Video: https://www.youtube.com/watch?v=r8_4IiIHAjg
-<br>Ashley Morgan Smithline joins Evan Rachel Wood & Esme Bianco Against Manson's Violence - MAY 12, 2021
-<br>https://www.change.org/p/sony-support-evan-rachel-wood-stop-marilyn-manson/u/29039821
-<br>Evan Rachel Wood Defends Against False Conspiracy Claims with Timeline -
-<br>https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants/
+<b>"'Fixing' Witnesses/Victims" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
+- https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit
+- Ashley Morgan Smithline - Testimony May 5, 2021 on Smithline being abused by a public figure - Video: https://www.youtube.com/watch?v=r8_4IiIHAjg Ashley Morgan Smithline joins Evan Rachel Wood & Esme Bianco Against Manson's Violence - MAY 12, 2021 https://www.change.org/p/sony-support-evan-rachel-wood-stop-marilyn-manson/u/29039821 Evan Rachel Wood Defends Against False Conspiracy Claims with Timeline - https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants/
 
-<i>Vague in this commentary</i> -- but the files when interpreted in a 3rd party context speak for themselves
+<i>Vague in this commentary</i> -- What's the 'context' of the documents?
  - Clearly Elon Musk and Amber Heard were extorted and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time). There's witness interference, which is a complex subject, so understand what origins.
  - <i>Amber Heard's Appeal Filings to the Court of Appeals refer to the situations on the surface, but without any analysis beneath them on how exploitive they truely are. Moreover, as far as we see, no refreshing/new investigators revealed the issues, nor was it stopped. --- You should communicate with others freely, and maybe one can speak to all 'sides.'</i>
 
