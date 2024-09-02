@@ -38,11 +38,6 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
 
-# Confront FALSE Blackmailing to Stop It (Guide Recommendation) and Stop Orders
-- When facing issues where a person is trying to manipulate to edit, harm, and pull FALSE 'agent-principle' relationships to force no injunctions and silencing, one needs to CONFRONT IT. No matter what gender a person is, they should have the right to do injunctions early to stop harms before it gets worse. Unfortuneately, this case in paticular has many issues of only certain groups 'allowed' to respond which actually WORSENS the problem if not ALL 'sides' can respond.
-- When a person is trying to coerce about where funds go, relationships, and so on, go forward and explain the full context early on. It only makes the problems fester and increase if refusing to respond to the problems, e.g., false and twisted blackmailing (e.g., by 'fixers' in this case procuring funds). Often blackmailers and fixers like to prey on people who are afraid to respond and who are intimidated by their information and likeness being manipulated.
-  <br>Sadly this occured in this large case, which likely would never have gone to trial. AND it continues with or without any litigation. It is perpetual and a problem that Southern California/California in paticular has. 
-
 ## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
 The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
@@ -155,5 +150,10 @@ https://amberopenletter.com/
 - <a href="https://www.kaggle.com/datasets/amberhearddata/amber-heard-twitter-data-april-2022-to-sept-2022">Twitter</a>: Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022
 - <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">Change.org</a>: Amber Heard Data Collected 2022 - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
 - <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022">YouTube</a>: 57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts
+
+## Confront FALSE Blackmailing to Stop It (Guide Recommendation) and Stop Orders
+- When facing issues where a person is trying to manipulate to edit, harm, and pull FALSE 'agent-principle' relationships to force no injunctions and silencing, one needs to CONFRONT IT. No matter what gender a person is, they should have the right to do injunctions early to stop harms before it gets worse. Unfortuneately, this case in paticular has many issues of only certain groups 'allowed' to respond which actually WORSENS the problem if not ALL 'sides' can respond.
+- When a person is trying to coerce about where funds go, relationships, and so on, go forward and explain the full context early on. It only makes the problems fester and increase if refusing to respond to the problems, e.g., false and twisted blackmailing (e.g., by 'fixers' in this case procuring funds). Often blackmailers and fixers like to prey on people who are afraid to respond and who are intimidated by their information and likeness being manipulated.
+  <br>Sadly this occured in this large case, which likely would never have gone to trial. AND it continues with or without any litigation. It is perpetual and a problem that Southern California/California in paticular has. 
 
 Analysis of Data Results is based on the <b>Balance of Probabilities</b>, not a percentage of yes or no.
