@@ -1,5 +1,7 @@
 ## Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:
 
+The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
+<br>
 <b><i>Recommended Film - New York City Witnesses:</i></b>
 <br><b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
 <br>
@@ -8,8 +10,6 @@
 Watch the Full Movie of Rear Window on Archive Org:
 <br> https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
-
-The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
@@ -22,7 +22,7 @@ Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
  <br>
 
 <b>A POEM:<b><br>
-How these cases are to the victims lives and never stop talking to your witnesses/other victims (and Your Friends) - if possible.
+How these cases are for the victims lives and never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 <b>When funds, supporters, friends, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
 <br> <i>As seen, even people with university degrees review. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats. Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
 a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...
