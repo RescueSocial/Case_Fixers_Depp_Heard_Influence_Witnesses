@@ -20,11 +20,11 @@ Jack Lemmon Plays an American diplomat.</b> *Study Friendships and Witnesses*
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
 
-<b>A POEM:<b><br>
-How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
+<b>A POEM:</b><br>
+<i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 <b>When funds, supporters, friends, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
 <br> <i>As seen, even people with university degrees review. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats. Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
-a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...
+a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...</i>
 #### <b><i>These are the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement.
 
@@ -53,4 +53,5 @@ This can be like a 2013 movie.
 <i>The Future</i> definitely needs more "Veronica Mars" investigator white hats in 'hollywood' and 3rd parties and/or reporters even getting men to be witnesses of women abused (both videos are from the 2000s):
 <br>Video - Veronica Mars Top Ten Unforgettable Moments (2004-2007) - https://www.youtube.com/watch?v=dYk_rIidKm4
 <br>Video - <i>The Price of LA - 3rd party reporter</i> - BUZZ Starring Sharon Lawrence and Cassidy Freeman (2007) - https://youtu.be/2Ie2OcADm30
+<br>
 <br><i>Information for Educational Purposes</i>
