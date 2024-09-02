@@ -24,24 +24,6 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
 
 The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 
-## <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
-<br>
-<br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
-Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
-<br>KIM NOVAK SCENE BELOW<br>
-[![Kim Novak - Witness "Appears" During Trial in Insigtful Mystery-Comedy Movie Notorious Landlady]](https://www.youtube.com/watch?v=beYn6CB3eDA))
-<br>
-<br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
- <br>
-
-With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
-
-- The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential to open-source what happened for <b>ethical review. </b>
-
-## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
-
-The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
-
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
 <br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
@@ -51,6 +33,10 @@ Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
 <br>
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
+<br>
+With resilience, you can see <b>Amber Heard's Good Character</b> from an archived official website: http://web.archive.org/web/20120118112943/http://amberheardofficial.com/
+
+- The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential for <b>ethical review. </b>
 
 <i>What's a Hollywood Fixer? -
 <br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - falsely blackmailing, pulling both ends, causing perpetual terror and chaos -
