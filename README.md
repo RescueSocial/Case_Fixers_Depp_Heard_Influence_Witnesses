@@ -1,5 +1,5 @@
 # Case_Fixers_Depp_Heard_Influence_Witnesses
-<b>Influence Effects & Hollywood Fixers on Amber Heard and 3rd Parties, Society, Organizations, Experts, Witnesses
+<b>Influence Effects & Hollywood Fixers on Amber Heard and Witnesses, Experts, 3rd Parties, Society, Organizations
 <br> - Open-Source Documents - Amici Organizations Filings, Official Records, & Unseen Information</b>
 
 <b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
@@ -58,7 +58,7 @@ It's important to compare and contast. What happened between 2019 and 2023?
 <br> NGN LAWSUIT WITH HER WITNESS TESTIMONY:</b><br><br>
 https://amberopenletter.com/
 
-<b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to both insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
+<b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to Manipulation that was crafted from the "inside" to the external... public figures utilize it, but deny it:</b></i>
 
 "Five months ago, the verdict in the defamation trial between Johnny Depp and Amber Heard deeply concerned many professionals in the fields of intimate partner and sexual violence.
 <br>As many, including A.O. Scott for The New York Times have noted, the vilification of Ms. Heard and ongoing online harassment of her and those who have voiced support for her have been unprecedented in both vitriol and scale. 
