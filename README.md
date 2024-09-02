@@ -73,7 +73,7 @@ It's important to compare and contast. What happened between 2019 and 2023?
 This GitHub seeks to point one into the direction of finding out.
 
 
-## <b>IMAGE FROM NEWSGROUP NEWSPAPERS LAWSUIT OF WITNESS TESTIMONY - An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts:</b><br><br>
+## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts - PHOTO ON LETTER FROM NEWSGROUP NEWSPAPERS LAWSUIT OF WITNESS TESTIMONY:</b><br><br>
 https://amberopenletter.com/
 
 <b><i>Released in November, before appeals were filed for Amber Heard on November 23 -- in a struggle to catch up to both insider and online manipulation in an age where public figures utilize it, but deny it:</b></i>
