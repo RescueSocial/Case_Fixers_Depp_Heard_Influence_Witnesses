@@ -20,6 +20,8 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br>We hope victims of abuse can see what happened in a <b>Perspective</b> as a reason to do Community Aid for people abused - Despite fixers, spin, pulling both ends, and even interference with publicity.</i>
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 
+[![Movie Symbol](https://img.vimeo.com/vi/862288304/0.jpg)](https://vimeo.com/862288304))
+
 ## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
 The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
