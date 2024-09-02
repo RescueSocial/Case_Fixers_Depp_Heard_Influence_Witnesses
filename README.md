@@ -7,7 +7,7 @@
 - <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spins</s></a>, Playbooks, Fixers</i>
 - Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
-
+<br>
 Recommended Film - New York City Witnesses:
 <br><b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
 <br>
@@ -142,7 +142,7 @@ https://amberopenletter.com/
 - <a href="https://www.kaggle.com/datasets/amberhearddata/amber-heard-twitter-data-april-2022-to-sept-2022">Twitter</a>: Data of Amber Heard between April 2022 to September 2022 - 854,782 Tweets and Tweets Lite, 307,502 Accounts in the Dataset, Daily Creation of Accounts Between January to September (1062 high 4-26 to 1 low 8-18), 31,680 accounts created in 2022
 - <a href="https://www.kaggle.com/datasets/amberhearddata/changeorg-amber-heard-data-oct-2022-437-petitions">Change.org</a>: Amber Heard Data Collected 2022 - 437 Petitions, 59,688 Comments, 4,298 Milestones (shows signature milestone timings), Graphs under "Figures" folder of partial data analysis
 - <a href="https://www.kaggle.com/datasets/amberhearddata/youtube-amber-heard-data-collected-october-2022">YouTube</a>: 57,958 videos on Amber Heard from YouTube Data with Comments, Metrics, Accounts
-- <a href="https://www.kaggle.com/amberhearddata/datasets">Data on 5 Social Media Platforms 2021-2022</a>
+- <a href="https://www.kaggle.com/amberhearddata/datasets">5 SM Platforms 2021-2022</a>
 
 ## Confront FALSE Blackmailing to Stop It (Guide Recommendation) and Stop Orders
 - When facing issues where a person is trying to manipulate to edit, harm, and pull FALSE 'agent-principle' relationships to force no injunctions and silencing, one needs to CONFRONT IT. No matter what gender a person is, they should have the right to do injunctions early to stop harms before it gets worse. Unfortuneately, this case in paticular has many issues of only certain groups 'allowed' to respond which actually WORSENS the problem if not ALL 'sides' can respond.
