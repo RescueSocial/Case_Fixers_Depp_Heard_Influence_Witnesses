@@ -7,11 +7,10 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br>
 [![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
 <br>
-Watch the Full Movie of Rear Window on Archive Org:
-<br>https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
+Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
 
-### <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
+<b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"</b>
 <br>
 <br>The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
 Jack Lemmon Plays an American diplomat. *Study Friendships and Witnesses*
