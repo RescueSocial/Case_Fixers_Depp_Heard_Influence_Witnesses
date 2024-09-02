@@ -26,7 +26,7 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber Heard, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 <br>
 <br>
-Educational Movie: [![Movie Symbol](https://img.vimeo.com/vi/862288304/0.jpg)](https://vimeo.com/862288304))<br>
+Educational Movie: [![Movie Symbol](https://img.vimeo.com/vi/862288304/0.jpg)](https://vimeo.com/862288304)<br>
 
 ## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
