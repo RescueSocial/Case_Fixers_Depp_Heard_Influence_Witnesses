@@ -40,8 +40,8 @@ With resilience, you can see <b>Amber Heard's Good Character</b> from an archive
 
 - The below Open Letter with over <a href="https://amberopenletter.com/">300 Organizations and Experts</a> was after 2 years of researching social media and after months of looking into the surface of witness interference. Long-term, it's essential for <b>ethical review. </b>
 
-<i>What's a Hollywood Fixer? -
-<br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - falsely blackmailing, pulling both ends, causing perpetual terror and chaos -
+<i><b>What ARE Hollywood Fixers?</b> -
+<br>They've been working on cases for over 30 years, some of the most known cases of our times are the same 'fixers' and they can harm their clients by taking info, strategy, and witness names to the opposition - pulling both ends, causing perpetual terror and chaos -
   <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">Video Series</a> <i>- hint, it's not just this one, and it's sadly never reported regarding this case.</i></i>
 <br><i>- For example, the <a href="https://www.hollywoodreporter.com/tv/tv-reviews/sin-eater-the-crimes-of-anthony-pellicano-documentary-review-1235343104/">American Docuseries on Anthony Pellicano scrapes the surface</a> - when they get into cases as insiders with false misrepresentation and the 'team' doesn't understand 'fixers,' it's horrific.</i>
 
@@ -52,8 +52,6 @@ It's important to compare and contast. What happened between 2019 and 2023?
 <br>How can someone go from being a humanitarian to devastated, and then thankfully, life-rafted? 
 <br>What are Hollywood Fixers continuing to do over years, and what's the playbook?
 <br>Where do previous witnesses go?
-
-This GitHub seeks to point one into the direction of finding out.
 
 
 ## <b>An Open Letter in Support of Amber Heard - Over 300 Organizations and Experts 
