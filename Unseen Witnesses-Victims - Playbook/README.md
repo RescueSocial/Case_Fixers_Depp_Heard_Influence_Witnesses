@@ -44,8 +44,9 @@ a model or actress that's been minimized, a former character reference... If the
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement.
 
 - <b>If you ever watched <i>The Proposal Movie <a href="https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1">(2009)</a></i> with Sandra Bullock and Ryan Renolds, it's like the fictional script- it's reversing witness interference to create fear of communications</i>.</b>
-<br>That script is comedic, <i>but imagine this intensified to <b>reality and involving abuse, violence,</b></i> rather than merely a fictional marriage.
+<br>That script is comedic, <i>but imagine this intensified to <b>reality and involving abuse, violence,</b></i> rather than merely a fictional marriage. Further, there are references to bribing and fraud.
 <i><br>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
+- Now see the Golden Era Scene from To Catch a Thief (1955) Grace Kelly & Cary Grant Walking Scene, where he makes financial commentary. https://youtu.be/HMeQ99Pyd5w?si=NeB10EHPDIJ2TdyN
 
 <b>This is sadly actually a very scary experience that feels (or is) extortionary. It meanwhile, continues.</b> Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
 
