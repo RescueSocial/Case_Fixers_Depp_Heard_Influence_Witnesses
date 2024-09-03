@@ -34,11 +34,6 @@ Jack Lemmon Plays an American diplomat.</b>
 
 ## What's the Takeaway?
 
-<b>A POEM:</b><br>
-<i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
-<b>When potential witnesses, funds, friends, businesses, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
-<br> <i>People with university degrees review. Yet, Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or Relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and there's <b>Exploitation</b>... Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...
-<br> How typically people in the "Arts" can write, all together...</i>
 #### <b><i>These are the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement.
 
@@ -51,6 +46,12 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 <b>Amber Heard was originally a Witness for Gregg Brooks "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
 <br>Removed as a witness that would Testify
+
+<b>A POEM:</b><br>
+<i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
+<b>When potential witnesses, funds, friends, businesses, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
+<br> <i>People with university degrees review. Yet, Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or Relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and there's <b>Exploitation</b>... Meanwhile, a witness/victim may be a stranger, a former friend of the opposition, a low-income person, an ex-staffer from decades ago, a school friend, a model or actress that's been minimized, a former character reference ... If they're all intimidated or supposedly 'impeached' then...
+<br> How typically people in the "Arts" can write, all together...</i>
 
 <b>"'Fixing' Witnesses/Victims" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
 - Writing Style: https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit <br> In other words, is it REALLY Ray Donovan with a Pen or enabled/able to be expressive?
