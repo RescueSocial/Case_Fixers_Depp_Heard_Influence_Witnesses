@@ -34,7 +34,7 @@ Jack Lemmon Plays an American diplomat.</b>
 
 ## What's the Takeaway?
 
-#### <i>"....[Hollywood Fixers] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade" Patterns exist...</i>
+#### <i>"....[Hollywood Fixers]... working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a>" Patterns exist...</i>
 
 <b>A POEM:</b><br>
 <i>How are these cases for the victims and witnesses lives? Keep talking to your witnesses/other victims (and Your Friends) - if possible.
