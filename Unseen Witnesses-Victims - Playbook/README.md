@@ -11,7 +11,8 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br>
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
-- Or Another Will "Withhold Testimony or Information" is part of the Coercion Law in New York
+- In the New York Coercion Law: Or Another Will "Withhold Testimony or Information"<br>
+
 <i><b><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i></b>
 <br>
 <i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i>
