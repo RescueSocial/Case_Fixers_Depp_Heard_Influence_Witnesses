@@ -21,7 +21,7 @@ Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=50% height=50%>
 </a><br>
 
-### Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"
+## Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"
 The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
 Jack Lemmon Plays an American diplomat.</b>
 <br>*Study Friendships and Witnesses*
