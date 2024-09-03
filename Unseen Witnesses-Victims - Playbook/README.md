@@ -63,7 +63,7 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 
 This can be like a 2013 movie. 
 <br>Especially since we're, ahem, not allowed to ever speak to Amber's lawyers in any clear manner and only to her opposition, nor is she allowed to have character references anymore... Insider threats can cost companies millions of dollars, and apparently, society has issues too.
-###### <i>"....[Example] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday." Patterns exist...</i>
+#### <i>"....[Example] was always working <a href="https://web.archive.org/web/20160213100046/https://www.nydailynews.com/entertainment/gossip/o-simpson-bugged-nicole-private-investigator-article-1.228370">for two, or three, different sides</a> — gathering information he can trade someday." Patterns exist...</i>
 
 <i>The Future</i> definitely needs more "Veronica Mars" investigator white hats in 'hollywood' and 3rd parties and/or reporters even getting men to be witnesses of women abused (both videos are from the 2000s):
 <br>Video - Veronica Mars Top Ten Unforgettable Moments (2004-2007) - https://www.youtube.com/watch?v=dYk_rIidKm4
