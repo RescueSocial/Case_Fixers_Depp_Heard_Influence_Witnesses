@@ -11,6 +11,7 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br>
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
+- Or Another Will "Withhold Testimony or Information" is part of the Coercion Law in New York
 <i><b><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i></b>
 <br>
 <i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i>
@@ -54,7 +55,6 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 - Ashley Morgan Smithline - Testimony May 5, 2021 on Smithline being abused by a public figure - Video: https://www.youtube.com/watch?v=r8_4IiIHAjg Ashley Morgan Smithline joins Evan Rachel Wood & Esme Bianco Against Manson's Violence - MAY 12, 2021 https://www.change.org/p/sony-support-evan-rachel-wood-stop-marilyn-manson/u/29039821 Evan Rachel Wood Defends Against False Conspiracy Claims with Timeline - https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants
 
 <i>Vague in this commentary</i> -- What's the 'context' of the documents?
-- Or Another Will "Withhold Testimony or Information" is part of the Coercion Law in New York
  - Like it or not, from observation billionaire Elon Musk and Amber Heard were coerced, experienced extortionary tactics and blackmailed falsely from the onset - hence she cannot talk to any of her friends or anyone. This is why financial information and Donations are to be PRIVATE and PROTECTED... Same goes for witness lists, but as complained about already by Howell ironically, there are little to no court recourses unless the victims of it figure it out themselves (and in time). There's witness interference, which is a complex subject, so understand what origins.
  - <i>Amber Heard's Appeal Filings to the Court of Appeals refer to the situations on the surface, but without any analysis beneath them on how exploitive they truely are. Moreover, as far as we see, no refreshing/new investigators revealed the issues, nor was it stopped. --- You should communicate with others freely, and maybe one can speak to all 'sides.'</i>
 
