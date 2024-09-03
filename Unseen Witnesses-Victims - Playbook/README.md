@@ -27,6 +27,7 @@ Jack Lemmon Plays an American diplomat.</b>
 <br>
 <br>Watch the Full Golden Era Movie on Tubi: https://tubitv.com/movies/100009239/the-notorious-landlady
  <br>
+<a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed in California</a></i><br>
 
 <b>A POEM:</b><br>
 <i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
@@ -48,7 +49,6 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 <br>Removed as a witness that would testify
 
 <b>"'Fixing' Witnesses/Victims" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
-- <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed in California</a></i><br>
 - https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit
 - Ashley Morgan Smithline - Testimony May 5, 2021 on Smithline being abused by a public figure - Video: https://www.youtube.com/watch?v=r8_4IiIHAjg Ashley Morgan Smithline joins Evan Rachel Wood & Esme Bianco Against Manson's Violence - MAY 12, 2021 https://www.change.org/p/sony-support-evan-rachel-wood-stop-marilyn-manson/u/29039821 Evan Rachel Wood Defends Against False Conspiracy Claims with Timeline - https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants
 
