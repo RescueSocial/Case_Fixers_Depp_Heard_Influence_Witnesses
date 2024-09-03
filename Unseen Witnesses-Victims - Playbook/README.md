@@ -11,7 +11,8 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br>
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
-- In the New York Coercion Law: Or Another Will "Withhold Testimony or Information"<br>
+
+## In the New York Coercion Law: Or Another Will "Withhold Testimony or Information"
 
 <i><b><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i></b>
 <br>
