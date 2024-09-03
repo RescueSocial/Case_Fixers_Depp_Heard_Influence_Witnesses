@@ -10,7 +10,6 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 [![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
 <br>
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
-<br>
 
 ## In the New York Coercion Law: Or Another Will "Withhold Testimony or Information"
 
