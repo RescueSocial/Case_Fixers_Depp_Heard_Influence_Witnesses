@@ -14,11 +14,9 @@ Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/
 <i>Educational & Symbolic Movie:</i>
 <br>
 <a href="https://vimeo.com/862288304">
-<img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=30% height=30%>
+<img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=50% height=50%>
 </a><br>
 <i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i><br>
-
-<br>
 
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"
 <br>
