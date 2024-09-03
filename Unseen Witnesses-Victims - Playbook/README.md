@@ -4,19 +4,20 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br><br>
 <i><b>Witness "Appears" During Trial in Insightful Mystery-Comedy Movie</b></i>
 <br><br>
-<i>Educational & Symbolic Movie:</i>
-<br>
-<a href="https://vimeo.com/862288304">
-<img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=30% height=30%>
-</a><br>
-<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i><br><br>
-
 <b><i>Recommended Film - New York City Witnesses:</i></b>
 <br><b>Alfred Hitchcock's masterpiece REAR WINDOW premiered in New York City 65 years ago today!</b>
 <br>
 [![Rear Window Official Trailer #1 - James Stewart, Grace Kelly Movie (1954) HD](https://img.youtube.com/vi/m01YktiEZCw/0.jpg)](https://www.youtube.com/watch?v=m01YktiEZCw))
 <br>
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
+<br>
+<i>Educational & Symbolic Movie:</i>
+<br>
+<a href="https://vimeo.com/862288304">
+<img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=30% height=30%>
+</a><br>
+<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i><br>
+
 <br>
 
 <b>Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"
