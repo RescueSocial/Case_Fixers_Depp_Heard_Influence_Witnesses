@@ -43,7 +43,7 @@ Jack Lemmon Plays an American diplomat.</b>
 #### <b><i>These are the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement.
 
-- <b>If you ever watched <i>The Proposal Movie <a href="https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1">(2009)</a></i> with Sandra Bullock and Ryan Renolds, it's like the fictional script- reversing witness interference to create fear of communications</i>.</b>
+- <b>If you ever watched <i>The Proposal Movie <a href="https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1">(2009)</a></i> with Sandra Bullock and Ryan Renolds, it's like the fictional script - reversing witness interference to create fear of communications</i>.</b>
 <br>That script is comedic, <i>but imagine this intensified to <b>reality and involving abuse, violence,</b></i> rather than merely a fictional marriage. Further, there are references to bribery and fraud. <i>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
 - <b> Now see the <i>Golden Era Scene from <a href="https://www.imdb.com/title/tt0048728">To Catch a Thief</a></i> (1955) Grace Kelly & Cary Grant Walking Scene, where he makes financial commentary. Also directed by Alfred Hitchcock in a picturesque setting,</b> <i>https://youtu.be/HMeQ99Pyd5w?si=NeB10EHPDIJ2TdyN</i>
 
