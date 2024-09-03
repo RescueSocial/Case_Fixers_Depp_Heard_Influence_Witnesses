@@ -38,18 +38,18 @@ Jack Lemmon Plays an American diplomat.</b>
 <i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 <b>When potential witnesses, funds, friends, businesses, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
 <br> <i>As seen, even people with university degrees review. Yet, this part of the Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures - who are given gatekeeping access to media/journalists - and insider threats.
-<br>Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, 
-a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then... How typically people in the "Arts" can write all together...</i>
+<br>Meanwhile, a witness/victim may be a low-income person, an ex-staffer from decades ago, a school friend, a former friend of the opposition, a model or actress that's been minimized, a former character reference... If they're all intimidated or supposedly 'impeached' then...
+<br> How typically people in the "Arts" can write, all together...</i>
 #### <b><i>These are the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
 Secondly, it's intensified by the manipulation of audio recording laws (Western vs Eastern States, e.g.), and false claims of having preferences to access enforcement.
 
 - <b>If you ever watched <i>The Proposal Movie <a href="https://www.imdb.com/title/tt1041829/?ref_=nm_knf_t_1">(2009)</a></i> with Sandra Bullock and Ryan Renolds, it's like the fictional script- reversing witness interference to create fear of communications</i>.</b>
 <br>That script is comedic, <i>but imagine this intensified to <b>reality and involving abuse, violence,</b></i> rather than merely a fictional marriage. Further, there are references to bribery and fraud. <i>Video Trailer of Movie: https://www.youtube.com/watch?v=Z2lYA7L7PZY</i>
-- <b> Now see the <i>Golden Era Scene from <a href="https://www.imdb.com/title/tt0048728">To Catch a Thief</a></i> (1955) Grace Kelly & Cary Grant Walking Scene, where he makes financial commentary. Also directed by Alfred Hitchcok in a picturesque setting,</b> <i>https://youtu.be/HMeQ99Pyd5w?si=NeB10EHPDIJ2TdyN</i>
+- <b> Now see the <i>Golden Era Scene from <a href="https://www.imdb.com/title/tt0048728">To Catch a Thief</a></i> (1955) Grace Kelly & Cary Grant Walking Scene, where he makes financial commentary. Also directed by Alfred Hitchcock in a picturesque setting,</b> <i>https://youtu.be/HMeQ99Pyd5w?si=NeB10EHPDIJ2TdyN</i>
 
 <b>This is sadly actually a very scary experience that feels extortionary. It meanwhile, continues.</b> Protecting witnesses/victims is essential, but sadly it's been forced upon the victims themselves to understand/recognize, which is difficult. 
 
-<b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
+<b>Amber Heard was originally a Witness for Gregg Brooks "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
 <br>Removed as a witness that would Testify
 
