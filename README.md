@@ -2,9 +2,9 @@
 <b>Influence Effects & Hollywood Fixers on Amber Heard and Witnesses, Experts, 3rd Parties, Society, Organizations
 <br> - Open-Source Documents - Amici Organizations Filings, Official Records, & Unseen Information</b>
 
-<b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
+<b><a href="https://github.com/RescueSocial/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
 
-- <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
+- <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocial/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spins</s></a>, Playbooks, Fixers</i>
 - Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
 
@@ -28,7 +28,7 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
   <br><b>The Truth is a Lion to be Released</b> and we wish the best for Amber, including that her friendships, career, witnesses, and life flourishes as situations and understanding improves. Amici tried to repair and bandage the case's impact.
 <br>
 <br>
-<i>Educational & Symbolic Movie:</i>
+<i><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i>
 <br>
 <a href="https://vimeo.com/862288304">
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=40% height=40%>
