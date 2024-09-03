@@ -2,9 +2,9 @@
 <b>Influence Effects & Hollywood Fixers on Amber Heard and Witnesses, Experts, 3rd Parties, Society, Organizations
 <br> - Open-Source Documents - Amici Organizations Filings, Official Records, & Unseen Information</b>
 
-<b><a href="https://github.com/RescueSocial/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
+<b><a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Operations/blob/main/101722%20order%20-%20grant%20writ%20of%20mandamus%20-%201176-22-4.pdf">Official Records of the Amber Heard Case were Opened in October 2022 to 3rd Parties with a Mandamus Order</a> from the Court of Appeals Judges which is an essential part of due process and Legal Rights.</b>
 
-- <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocial/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
+- <i>Impacts to Legal Cases, <a href="https://github.com/RescueSocialTech/Amber_Heard_Influence_Effects_Fixers/tree/main/Unseen%20Witnesses-Victims%20-%20Playbook">Victims/Witnesses</a>, 3rd Parties, & Society
 - Part 2 <a href="https://www.merriam-webster.com/dictionary/spin%20doctor"><s>Spins</s></a>, Playbooks, Fixers</i>
 - Confront FALSE Blackmailing to Stop It (Guide Recommendation) is to confront that information early on with full context
 
