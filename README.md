@@ -33,7 +33,7 @@ It's essential for this to turn into <i>Something Good</i> - <i><b>"focus on the
 <a href="https://vimeo.com/862288304">
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=40% height=40%>
 </a><br>
-<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">NY Coercion Law Needed</a></i><br>
+<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed</a></i><br>
 
 ## <b>Unseen Witnesses-Victims - Playbook - Folder - Witnesses-Donations Interference Spun:</b>
 
