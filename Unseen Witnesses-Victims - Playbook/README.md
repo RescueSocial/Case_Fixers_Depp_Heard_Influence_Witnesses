@@ -11,12 +11,12 @@ The ruining of Cases in Hollywood is nuanced - how is testimony influnced?
 <br>
 Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/rear.-window.-1954.by-hitchcock.-720p.x-264.-aac.-multisub.mkv-zen-bud<br>
 <br>
-<i><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i>
+<i><<b></b>a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i></b>
 <br>
+<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i>
 <a href="https://vimeo.com/862288304">
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=50% height=50%>
 </a><br>
-<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i><br>
 
 ### Kim Novak - Witness "Appears" During Trial in Insightful Mystery-Comedy Movie "Notorious Landlady"
 The judge accepts the witness that exonerates Ms. Hardwicke. The Witness Testifies that they eye-witnessed the assault and that she's not at fault. The judge asks why the Witness Withheld their testimony and information.
@@ -50,7 +50,7 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 <br>Removed as a witness that would testify
 
 <b>"'Fixing' Witnesses/Victims" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
-- Writing Style: https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit (Ray Donovan with a Pen or enabled/able to be expressive?)
+- Writing Style: https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit <br> In other words, is it REALLY Ray Donovan with a Pen or enabled/able to be expressive?
 - Ashley Morgan Smithline - Testimony May 5, 2021 on Smithline being abused by a public figure - Video: https://www.youtube.com/watch?v=r8_4IiIHAjg Ashley Morgan Smithline joins Evan Rachel Wood & Esme Bianco Against Manson's Violence - MAY 12, 2021 https://www.change.org/p/sony-support-evan-rachel-wood-stop-marilyn-manson/u/29039821 Evan Rachel Wood Defends Against False Conspiracy Claims with Timeline - https://loudwire.com/marilyn-manson-accuser-ashley-smithline-recants
 
 <i>Vague in this commentary</i> -- What's the 'context' of the documents?
