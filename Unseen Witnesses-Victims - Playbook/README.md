@@ -32,6 +32,8 @@ Jack Lemmon Plays an American diplomat.</b>
  
 <a href="https://newyork.public.law/laws/n.y._penal_law_section_135.60">New York Coercion Law Needed in California</a></i><br>
 
+## What's the Takeaway?
+
 <b>A POEM:</b><br>
 <i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 <b>When potential witnesses, funds, friends, businesses, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
@@ -49,7 +51,7 @@ Secondly, it's intensified by the manipulation of audio recording laws (Western 
 
 <b>Amber Heard was originally a Witness for Brooks Gregg "Rocky" when the lawsuit was filed in October 2019:</b>
 <br>https://trellis.law/doc/71989613/witness-list-joint-witness-list-filed-by-john-c-depp-defendant-infinitum-nihil-defendant
-<br>Removed as a witness that would testify
+<br>Removed as a witness that would Testify
 
 <b>"'Fixing' Witnesses/Victims" - Hollywood Fixers/Entertainment Continuing - EXAMPLES</b>
 - Writing Style: https://www.documentcloud.org/documents/23596551-nick-carter-courtclaim-lawsuit <br> In other words, is it REALLY Ray Donovan with a Pen or enabled/able to be expressive?
