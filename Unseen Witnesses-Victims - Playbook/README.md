@@ -15,7 +15,7 @@ Watch the Full Movie of Rear Window on Archive Org: https://archive.org/details/
 
 <i><b><a href="https://vimeo.com/862288304">Educational & Symbolic Movie:</a></i></b>
 <br>
-<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i>
+<i>Hollywood Fixers - Grace Kelly & Alfred Hitchcock Movies - Blackmail & Coercion</i><br>
 <a href="https://vimeo.com/862288304">
 <img src="https://i.vimeocdn.com/video/1721101448-31aed0cadb84bcf7a12225a210c87af1f3286a042a41029699a47bd5edbe0a90-d_1920x1080" width=50% height=50%>
 </a><br>
@@ -37,7 +37,7 @@ Jack Lemmon Plays an American diplomat.</b>
 <b>A POEM:</b><br>
 <i>How are these cases for the victims and witnesses lives? Never stop talking to your witnesses/other victims (and Your Friends) - if possible.
 <b>When potential witnesses, funds, friends, businesses, are thrown around with 'sides' (there really is no 'side'),</b> it becomes difficult to ever respond to. It becomes coercive, including through <i>another actor</i>.
-<br> <i>People with university degrees review. Yet, Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, including no due process/oversight protections and lack of access to remedies or Relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures and gatekeeping access - and there's <b>Exploitation</b>... Meanwhile, a witness/victim may be a stranger, a former friend of the opposition, a low-income person, an ex-staffer from decades ago, a school friend, a model or actress that's been minimized, a former character reference ... If they're all intimidated or supposedly 'impeached' then...
+<br> <i>People with university degrees review. Yet, Playbook is from experience and is less known by younger generations accustomed to searching without a solution. Without 'real' journalism and no protections for the less-powerful victims, no due process/oversight protections and lack of access to remedies or Relief for the less-powerful, there's less awareness.</i> This folder Alleges the Playbook of how witnesses and victims are interfered with. --- <i>[Keep Talking to Your Friends and Socializing]</i> ---> Typically, the <s>unconscionable idea, depending on how it's litigated or mistrialed,</s> is to make witnesses and victims turn against each other... The resources to do this are intensified when it involves public figures and gatekeeping access - and there's <b>Exploitation</b>... Meanwhile, a witness/victim may be a stranger, a former friend of the opposition, a low-income person, an ex-staffer from decades ago, a school friend, a model or actress that's been minimized, a former character reference ... If they're all intimidated or supposedly 'impeached' then...
 <br> How typically people in the "Arts" can write, all together...</i>
 
 #### <b><i>These are the Unpleasant Trenches that are supposedly "the Underbelly" of Hollywood. </i></b>
